@@ -2,100 +2,100 @@
 ## [2023] 聚焦：與神親密
 
 1. 與神親密：先鋒信息的核心  
-[handout](01handout.md)
+[講義](01handout.md)
 
 2. "神稱許為偉大"的人生：愛耶穌  
-[handout](02handout.md)
+[講義](02handout.md)
 
 3. 最重要的個人禱告事項  
-[handout](03handout.md)
+[講義](03handout.md)
 
 4. "受情感驅使的順服"的力量  
-[handout](04handout.md)
+[講義](04handout.md)
 
 5. 耶穌最偉大且最令人振奮的應許  
-[handout](05handout.md)
+[講義](05handout.md)
 
 6. "順服的愛"所帶來的無與倫比的喜樂  
-[handout](06handout.md)
+[講義](06handout.md)
 
 7. "蒙耶穌揀選"的榮耀  
-[handout](07handout.md)
+[講義](07handout.md)
 
 8. 結出榮耀天父的果子  
-[handout](08handout.md)
+[講義](08handout.md)
 
 9. 我最喜歡的兩節聖經經文 & 我最喜歡的兩個禱告  
-[handout](09handout.md)
+[講義](09handout.md)
 
 10. 最榮耀的人生：被賦予能力來榮耀神  
-[handout](10handout.md)
+[講義](10handout.md)
 
 11. 藉由"注視神的榮美"而被轉化  
-[handout](11handout.md)
+[講義](11handout.md)
 
 12. 以神的榮美為樂  
-[handout](12handout.md)
+[講義](12handout.md)
 
 13. "被神所愛"是心底最深的渴望  
-[handout](13handout.md)
+[講義](13handout.md)
 
 14. "被神所愛"的確據  
-[handout](14handout.md)
+[講義](14handout.md)
 
 15. 天父對"回轉歸向祂的背道者"的感受  
-[handout](15handout.md)
+[講義](15handout.md)
 
 16. 用"神的愛"來愛自己  
-[handout](16handout.md)
+[講義](16handout.md)
 
 17. 在"看見新郎君王"後的滿溢中服事 (何西阿書 2)  
-[handout](17handout.md)
+[講義](17handout.md)
 
 18. 伯大尼的馬利亞：對耶穌的極度奉獻 (路加福音 10)  
-[handout](18handout.md)
+[講義](18handout.md)
 
 19. 如何讓沉悶的禱告生活重現活力 (約翰福音 15)  
-[handout](19handout.md)
+[講義](19handout.md)
 
 20. 作為新郎之友，投入在服事中  
-[handout](20handout.md)
+[講義](20handout.md)
 
 21. 洗革拉：大衛領受到關於"神喜悅他"的啟示 (詩篇 18:19,35)  
-[handout](21handout.md)
+[講義](21handout.md)
 
 22. 彼得的屬靈危機 - 靈裡願意，肉體卻軟弱  
-[handout](22handout.md)
+[講義](22handout.md)
 
 23. "神的情感"所彰顯的榮耀 (出埃及記 34:6)  
-[handout](23handout.md)
+[講義](23handout.md)
 
 24. 將"神的榮美"視為隱藏的珍寶而尋求 (箴言 2:1-5)  
-[handout](24handout.md)
+[講義](24handout.md)
 
 25. 在被背叛時，與"神的榮美"相遇 (第一部分)  
-[handout](25handout.md)
+[講義](25handout.md)
 
 26. 在被背叛時，與"神的榮美"相遇 (第二部分)  
-[handout](26handout.md)
+[講義](26handout.md)
 
 27. 面對背叛時的得勝 (第一部分)  
-[handout](27handout.md)
+[講義](27handout.md)
 
 28. 面對背叛時的得勝 (第二部分)  
-[handout](28handout.md)
+[講義](28handout.md)
 
 29. 大衛："即使在被背叛時，仍能討神喜悅"的榜樣  
-[handout](29handout.md)
+[講義](29handout.md)
 
 30. 我的旅程：立定心志 "在被背叛時，效法大衛的回應"  
-[handout](30handout.md)
+[講義](30handout.md)
 
 31. 因"在神的榮美中喜樂"而被轉化  
-[handout](31handout.md)
+[講義](31handout.md)
 
 32. "經歷神的榮美"的具體方法  
-[handout](32handout.md)
+[講義](32handout.md)
 
 33. 末世教會將會是"大衛世代"  
-[handout](33handout.md)
+[講義](33handout.md)
