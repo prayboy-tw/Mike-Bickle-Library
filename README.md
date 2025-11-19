@@ -1,5 +1,8 @@
 # Mike Bickle Library
+
 https://mikebickle.live
+
+This website is created and maintained by Mike Bickle’s fans, who have been profoundly impacted by his work. Our mission is to preserve his teachings and share them online, as well as provide translations into Chinese.
 
 ---
 
