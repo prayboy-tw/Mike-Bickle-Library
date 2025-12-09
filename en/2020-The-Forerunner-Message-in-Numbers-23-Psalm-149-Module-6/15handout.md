@@ -1,6 +1,5 @@
 # Session 15 The Forerunner Message in Psalms 147 and 149
 
----
 
 ## I. Introduction to Psalm 147
 
@@ -16,7 +15,6 @@
 - **147:12-14** Our great God is our protector
 - **147:15-20** The great power of God's word
 
----
 
 ## II. Our great God is our redeemer (Ps. 147:1-6)
 
@@ -54,7 +52,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **L.** ***The LORD lifts up the humble***: He reverses the sinful order of this world. The humble are often cast down, but He lifts them up. The wicked are often lifted up, yet He cast them down.
 
----
 
 ## III. Our great God is our provider (Ps. 147:7-9)
 
@@ -66,7 +63,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **C.** ***Who makes grass to grow on the mountains***: Vegetation growing on the mountains without man's help provides food for the beasts and birds to eat. It can be rare for grass to grow on mountain tops.
 
----
 
 ## IV. Our God takes pleasure in humility (Ps. 147:10-11)
 
@@ -78,7 +74,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **C.** ***The Lord takes pleasure in those who fear Him***: The fear of God includes loving Him and trusting in His leadership and mercy. Natural or physical powers and achievements do not impress the Lord, but spiritual choices and qualities do, along with having confidence in His mercy and goodness.
 
----
 
 ## V. Our great God is our protector (Ps. 147:12-14)
 
@@ -92,7 +87,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **D.** ***Blessed your children***: His blessing of external security and internal happiness for their children.
 
----
 
 ## VI. The great power of God's word (Ps. 147:15-20)
 
@@ -102,7 +96,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **B.** Israel was distinct from all other nations, being uniquely blessed and entrusted with God's words (Rom. 9:4-5)
 
----
 
 ## VII. Introduction to Psalm 149
 
@@ -117,7 +110,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 - **149:4-5** God takes pleasure in and beautifies the humble
 - **149:6-9** The honor of participating in God's vengeance
 
----
 
 ## VIII. The saints are called to sing a new song (Ps. 149:1)
 
@@ -127,7 +119,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **B.** ***Sing to the LORD a new song***: The "new song" is more than a new composition with new lyrics that had never been sung before. This "new song" suggests a new situation, which is Jesus' return to rule His millennial kingdom—this is the underlying theme of this entire song beginning in 149:2.
 
----
 
 ## IX. Israel is called to rejoice in their Maker and King (Ps. 149:2-3)
 
@@ -143,7 +134,6 @@ This shift from the deep sighs of wounded hearts in 147:3 to the vast number of 
 
 **E.** ***Dance, the timbrel and harp***: David played the harp and danced before God (1 Sam. 16:23; 2 Sam. 6:5) as Miriam danced and played the timbrel (Ex. 15:20), as did Jephthah's daughter (Judg. 11:34).
 
----
 
 ## X. God takes pleasure in and beautifies the humble (Ps. 149:4-5)
 
@@ -165,7 +155,6 @@ One of the most powerful strongholds of the mind is related to the fear of rejec
 
 **D.** ***Let them sing on their beds***: This refers to individuals' private interaction with God at night. Singing on our bed can include the grace of Jesus being our "first and last" thoughts of each day on our bed. We can sing on our bed if confined by sickness, or having a restless night, or even in prison like Paul and Silas (Acts 16:25) who sang to God at midnight, possibly "on their beds," as it were.
 
----
 
 ## XI. The honor of participating in God's vengeance (Ps. 149:6-9)
 

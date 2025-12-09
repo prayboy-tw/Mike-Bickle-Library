@@ -1,6 +1,5 @@
 # Session 14 The Forerunner Message in Psalms 110 and 132
 
----
 
 ## I. Introduction to Psalm 110
 
@@ -23,7 +22,6 @@ In context to Jesus' return, He will execute His enemies as He establishes His e
 - **110:4** Jesus' eternal priestly ministry
 - **110:5-7** Jesus' end-time judgment of His enemies
 
----
 
 ## II. Jesus' heavenly reign through the Church in this age (Ps. 110:1-3)
 
@@ -64,7 +62,6 @@ The effectiveness of the Son's rule is assured in the midst of His enemies. How 
 
 > ³³...<ins>being exalted to the right hand of God</ins>, and having received from the Father the promise of the Holy Spirit, <ins>He poured out</ins> this which you now see... (Acts 2:33)
 
----
 
 ## III. In the day of Your power (Ps. 110:3)
 
@@ -96,7 +93,6 @@ This is a reference to the beautiful priestly garments (1 Chr. 16:29; 2 Chr. 20:
 2. The figure is poetic and beautiful—that the multitudes of the Lord's servants will be as numerous as the dewdrops of the morning and as beautiful as the bright dawn. The numbers that volunteer to serve will be as innumerable and as fresh as the morning dew.
 3. Jesus' army of youthful servants will go forth in the beautiful priestly garments of holiness, living as a kingdom of priests. David illustrated this youthful dedication of Psalm 132:1-5.
 
----
 
 ## IV. Jesus' eternal priestly ministry (Ps. 110:4)
 
@@ -114,7 +110,6 @@ This is a reference to the beautiful priestly garments (1 Chr. 16:29; 2 Chr. 20:
 
 **D.** ***According to the order of Melchizedek***: Priests in the order of Aaron were forbidden to be kings. Christ presides over an eternal priesthood. Our eternal identity is deeply connected with this aspect of His eternal identity because we are co-heirs with him, seated in heavenly places with Him.
 
----
 
 ## V. Jesus' end-time judgment of His enemies (Ps. 110:5-7)
 
@@ -128,7 +123,6 @@ This is a reference to the beautiful priestly garments (1 Chr. 16:29; 2 Chr. 20:
 
 **C.** ***He shall drink of the brook by the wayside***: David described Jesus as a courageous soldier in such hot pursuit of his enemy that He would be like a soldier who refused to slow down to enjoy refreshment but instead hastily drank from a brook as he passed by. This is the demeanor of Jesus attacking His enemy with great zeal. Jesus is described as a victorious conqueror pursuing His enemies vigorously in contrast to a soldier whose head falls down when exhausted or ashamed of failure. He is like a soldier with his head lifted up in triumph and strength.
 
----
 
 ## VI. Introduction to Psalm 132
 
@@ -156,7 +150,6 @@ I refer to this as "the vow that changed history." As a young man, David vowed t
 
 **E.** The first half of this psalm highlights David's extravagant dedication to providing a resting place for the ark of the covenant. The last half of the psalm highlights God's extravagant dedication to see Jesus, the ultimate son of David, reigning from His resting place on Zion in millennial Jerusalem.
 
----
 
 ## VII. A prayer to remember David's sacred vow (Ps. 132:1-5)
 
@@ -200,7 +193,6 @@ I refer to this as "the vow that changed history." As a young man, David vowed t
 
 **K.** Because we have *confidence* in the breakthrough that fully occurred in the Spirit because of Jesus' death, we have confidence to *contend* for a Holy-Spirit breakthrough in the natural.
 
----
 
 ## VIII. Finding the ark of His presence (Ps. 132:6-7)
 
@@ -216,7 +208,6 @@ It was the town where the ark rested for 20 years after the Philistines returned
 
 **D.** ***Let us worship at His footstool***: The temple and/or the ark is referred to as God's footstool.
 
----
 
 ## IX. A prayer when transporting the ark (Ps. 132:8-10)
 
@@ -231,7 +222,6 @@ It was the town where the ark rested for 20 years after the Philistines returned
 
 **C.** ***Let Your priests be clothed with righteousness***: The prayer of 132:9 is answered in 132:16. They prayed that God raise up a righteous priesthood so the saints can rejoice in on-going blessings.
 
----
 
 ## X. The Lord's promise to David (Ps. 132:11-12)
 
@@ -243,7 +233,6 @@ It was the town where the ark rested for 20 years after the Philistines returned
 
 **C.** ***The LORD has sworn in truth to David***: The most powerful force and spiritual weapon is God's word. Nathan prophesied God's covenant with David's house (2 Sam. 7:11-16; cf. Ps. 89:19-37).
 
----
 
 ## XI. The Lord's zeal for Zion (Ps. 132:13-18)
 
