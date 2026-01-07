@@ -5,7 +5,7 @@
 
 ## I. THREE PROPHETIC TIME FRAMES
 
-A. There are 3 prophetic time frames related to the final 7 years of this age along with 2 key dates–Israel becoming a nation (1948) and gaining control over Jerusalem (1967). The three time frames (Dan. 9:27; Mt. 24:8; 1 Thes. 5:2-3) are the beginning of birth pains (possibly starting in 1948 or 1967), worldwide counterfeit peace and safety (3½ years), and the Great Tribulation.
+A. There are 3 prophetic time frames related to the final 7 years of this age along with 2 key dates – Israel becoming a nation (1948) and gaining control over Jerusalem (1967). The three time frames (Dan. 9:27; Mt. 24:8; 1 Thes. 5:2-3) are the beginning of birth pains (possibly starting in 1948 or 1967), worldwide counterfeit peace and safety (3½ years), and the Great Tribulation.
 
 B. All three time frames occur in context to one generation. When ***all the signs*** spoken by Jesus in Matthew 24 accelerate in the same generation, believers are to ***know*** that they are living in the generation that He will return (Mt. 24:33-34). A generation may last 100 years (Gen. 15:13-16).
 
