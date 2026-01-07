@@ -19,7 +19,7 @@ B. All three time frames occur in context to one generation. When ***all the sig
 
 ## II. BEGINNING OF BIRTH PAINS: 1<sup>ST</sup> PROPHETIC TIME FRAME BEFORE JESUS RETURNS
 
-A. Jesus, the apostles, and the OT prophets prophesied various signs of the times that will alert God’s people (who are alive in the generation that Jesus returns) that His return is imminent.
+A. Jesus, the apostles, and the OT prophets prophesied various signs of the times that will alert God’s people (who are alive in the generation that Jesus returns) that His return is imminent.  
 _For the first time in history, **most** of these are increasing and making headline news globally._
 
 B. Jesus identified 12 negative “sign trends” and one positive trend (gospel preached in all nations) that will characterize this time (Mt. 24:4-8, 14; Mk. 13:5-8; Lk. 21:7-18)—***false christs, war, ethnic conflict*** (nation [ethnos] against nation), ***economic warfare*** (kingdom against kingdom), ***famines, pestilences, earthquakes, troubles*** (Mk. 13:8), ***commotions*** (chaotic events; Lk. 21:9), ***fearful sights*** (Lk. 21:11), ***signs from heaven*** (Lk. 21:11), and ***persecution*** (Lk. 21:12-19).
