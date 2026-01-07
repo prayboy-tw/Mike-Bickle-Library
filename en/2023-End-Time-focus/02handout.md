@@ -13,7 +13,7 @@ B. John the Baptist was a “down payment” of this prophecy. He was only a par
 
 > <sup>22</sup>Who are you…? What do you say about yourself? <sup>23</sup>He said: “<ins>I am the voice</ins> of one crying in the wilderness: make straight the way of the Lord, <ins>as the prophet Isaiah said</ins>.” (Jn. 1:22-23)
 
-> <sup>23</sup>I am the voice of one crying in the wilderness…<ins>as the prophet Isaiah said. (Jn. 1:23)
+> <sup>23</sup>I am the voice of one crying in the wilderness…<ins>as the prophet Isaiah said</ins>. (Jn. 1:23)
 
 C. ***Prepare the way:*** Bring people into agreement in understanding with what is coming. They must understand it, so that they have a chance to agree with it instead of turn it away. It is a great mercy that God raises up forerunner messengers that prepare the way. It takes time for people to digest truth that leads to embracing new paradigms and values. Most do not suddenly change.
 
@@ -47,7 +47,7 @@ E. ***Make is straight:*** John was to make clear without any compromise about w
 
 F. The forerunner message addresses spiritual valleys, mountains and crooked and rough places.
 
-> <sup>3</sup>…“Prepare the way of the LORD; Make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
+> <sup>3</sup>…“Prepare the way of the LORD; Make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain</ins> and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
 
 1. ***Valleys:*** The valleys are exalted. The valleys include the emotional low spots related to the spirit of rejection, accusation. Those low spots in our lives, the depressed areas. He wants the valleys to be brought up, or stabilized by the knowledge of God.
 
