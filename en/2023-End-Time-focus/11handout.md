@@ -27,13 +27,14 @@ Rev. 15-16 ***Chronological Section #4:*** The ***bowl judgments*** destroy evil
 	Rev. 17-18 ***Angelic Explanation #4:*** The SEDUCTION by Babylon’s evil religion will permeate and infiltrate all the structures of society, requiring that Babylon be totally destroyed. (Ps. 2:8-9).
 
 Rev. 19-20 ***Chronological Section #5:*** Jesus’ ***triumphal entry*** to Jerusalem (Rev. 19:11-21:8)  
-	Rev. 21-22 ***Angelic Explanation #5:*** The _RESTORATION_ of all things (Acts 3:21; Rev. 21:9-22:5). After Jesus returns, He will restore all that God originally intended in the Garden of Eden.
+	Rev. 21-22 ***Angelic Explanation #5:*** The _RESTORATION_ of all things (Acts 3:21; Rev. 21:9-22:5).  
+   After Jesus returns, He will restore all that God originally intended in the Garden of Eden.
 
 ## II. SUMMARY
 
-A. The 5 chronological sections (seals, trumpets, bowls) tell us what happens to the Antichrist empire.
+A. The 5 chronological sections (seals, trumpets, bowls) tell us what happens to the _Antichrist empire_.
 
-B. The 5 angelic explanations (parenthetical sections) tell us what happens to God’s people.
+B. The 5 angelic explanations (parenthetical sections) tell us what happens to _God’s people_.
 
 C. Summary of the structure of the book of Revelation.
 
