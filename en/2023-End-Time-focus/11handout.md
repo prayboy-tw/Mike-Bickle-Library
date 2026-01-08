@@ -42,17 +42,17 @@ Rev. 2-3  Pt. 2 Jesus gave 7 **LETTERS**
 Rev. 4-5  Pt. 3 Jesus takes the **SCROLL**  
 Rev. 6-22 Pt. 4 Jesus’ **BATTLE PLAN**  
 
-  - Rev. 6 Chronological section #1: **SEAL JUDGMENTS**  
-  - Rev. 7 Angelic Explanation #1: **PROTECTION** from judgments and falling away
+   Rev. 6 Chronological section #1: **SEAL JUDGMENTS**  
+   Rev. 7 Angelic Explanation #1: **PROTECTION** from judgments and falling away
 
-  - Rev. 8-9 Chronological section #2: **TRUMPET JUDGMENTS** against Antichrist  
-  - Rev. 10-11 Angelic Explanation #2: **DIRECTION** by increased prophetic ministry
+   Rev. 8-9 Chronological section #2: **TRUMPET JUDGMENTS** against Antichrist  
+   Rev. 10-11 Angelic Explanation #2: **DIRECTION** by increased prophetic ministry
 
-  - Rev. 11:15-19 Chronological section #3: **SECOND COMING PROCESSION**  
-  - Rev. 12-14 Angelic Explanation #3: violent **CONFRONTATION** by the Antichrist
+   Rev. 11:15-19 Chronological section #3: **SECOND COMING PROCESSION**  
+   Rev. 12-14 Angelic Explanation #3: violent **CONFRONTATION** by the Antichrist
 
-  - Rev. 15-16 Chron. section #4: **BOWL JUDGMENTS** destroy infrastructures  
-  - Rev. 17-18 Angelic Explanation #4: **SEDUCTION** of Babylon’s evil religion
+   Rev. 15-16 Chron. section #4: **BOWL JUDGMENTS** destroy infrastructures  
+   Rev. 17-18 Angelic Explanation #4: **SEDUCTION** of Babylon’s evil religion
 
-  - Rev. 19-20 Chron. section #5: **TRIUMPHAL ENTRY** (Rev. 19:11-21:8)  
-  - Rev. 21-22 Angelic Explanation #5: **RESTORATION** of all things (Rev. 21:9-22:5)
+   Rev. 19-20 Chron. section #5: **TRIUMPHAL ENTRY** (Rev. 19:11-21:8)  
+   Rev. 21-22 Angelic Explanation #5: **RESTORATION** of all things (Rev. 21:9-22:5)
