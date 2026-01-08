@@ -79,58 +79,55 @@
 
 A. Jerusalem is the only city that God specifically commanded all of His people to pray for (Ps. 122:6)
 
->6Pray for the peace of Jerusalem: “May they prosper who love you.” (Ps. 122:6)
+><sup>6</sup>Pray for the peace of Jerusalem: “May they prosper who love you.” (Ps. 122:6)
 
 B. Jerusalem is the only city that God promised to raise up intercessors until Jesus returns (Isa. 62:6-7).
 
->6On your walls, O Jerusalem, I have appointed [set, KJV] watchmen; all day and all night they will never keep silent. You [intercessors] who remind the LORD, take no rest for yourselves; 7and give Him no rest until He makes Jerusalem a praise in the earth [occurs at Jesus’ return]. (Isa. 62:6-7, NAS)
+><sup>6</sup>On your walls, O Jerusalem, I have appointed [set, KJV] watchmen; all day and all night they will never keep silent. You [intercessors] who remind the LORD, take no rest for yourselves; <sup>7</sup>and give Him no rest until He makes Jerusalem a praise in the earth [occurs at Jesus’ return]. (Isa. 62:6-7, NAS)
 
 C. Jerusalem is the only city in which God promised to protect those who mourned or prayed for it during a season of His judgment (when He sent the Babylonian army in 586 BC to destroy it).
 
->1He called out…,“Let those [angels] who have charge over the city [Jerusalem] draw near… 4the LORD said to him [an angel], “Go through…the midst of Jerusalem, and put a mark on the foreheads of the men who sigh and cry over all the abominations that are done within it.” 5To the others He said…,“Go through the city and kill; do not let your eye spare…” (Ezek. 9:1-5)
+><sup>1</sup>He called out…,“Let those [angels] who have charge over the city [Jerusalem] draw near… <sup>4</sup>the LORD said to him [an angel], “Go through…the midst of Jerusalem, and put a mark on the foreheads of the men who sigh and cry over all the abominations that are done within it.” <sup>5</sup>To the others He said…,“Go through the city and kill; do not let your eye spare…” (Ezek. 9:1-5)
 
 D. Jerusalem is the only city that God promised to bless any of who love, pray, rejoice, or mourn for it (Ps. 122:6; Isa 66:10-11). All who love Zion are to rejoice because of God's promises to her (instead of being jealous) and to sympathize or mourn with her sorrows (instead of being indifferent).
 
->10“Rejoice with Jerusalem…all you who love her…[and] all you who mourn for her; 11that you may feed and be satisfied with the consolation [comfort] of her bosom, that you may drink deeply and be delighted with the abundance of her glory.” (Isa. 66:10-11)
+><sup>10</sup>“Rejoice with Jerusalem…all you who love her…[and] all you who mourn for her; <sup>11</sup>that you may feed and be satisfied with the consolation [comfort] of her bosom, that you may drink deeply and be delighted with the abundance of her glory.” (Isa. 66:10-11)
 
->6Pray for the peace of Jerusalem: “May they prosper who love you.” (Ps. 122:6)
+><sup>6</sup>Pray for the peace of Jerusalem: “May they prosper who love you.” (Ps. 122:6)
 
 E. Gentiles are to rejoice with Jerusalem when the Lord avenges its blood (Deut. 32:41-43)
 
->41…I will render vengeance to My enemies [Gentiles], and repay those who hate Me… 43“Rejoice, O Gentiles, with His people; for He will avenge the blood of His servants…” (Deut. 32:41-43)
+><sup>41</sup>…I will render vengeance to My enemies [Gentiles], and repay those who hate Me… <sup>43</sup>“Rejoice, O Gentiles, with His people; for He will avenge the blood of His servants…” (Deut. 32:41-43)
 
 F. Jerusalem is the only city in which all the nations of the earth will come to learn the ways of God. (Isa. 2:3-4). It is the future teaching center for the whole earth.
 
->2…in the latter days…the LORD’s house [millennial temple] shall be established…and all nations shall flow to it. 3Many people [Gentile nations] shall say, “Come, and let us go…to the house of the God of Jacob; He will teach us His ways…for out of Zion [Jerusalem] shall go forth the law, and the word of the LORD from Jerusalem. (Isa. 2:2-3)
+><sup>2</sup>…in the latter days…the LORD’s house [millennial temple] shall be established…and all nations shall flow to it. <sup>3</sup>Many people [Gentile nations] shall say, “Come, and let us go…to the house of the God of Jacob; He will teach us His ways…for out of Zion [Jerusalem] shall go forth the law, and the word of the LORD from Jerusalem. (Isa. 2:2-3)
 
 G. Jerusalem is the only city in Scripture in which God commands nations to give to (Isa. 60:5-17).
 
->5…The wealth of the Gentiles shall come to you [Jerusalem]…
-6They shall bring gold… 9The ships of Tarshish will…bring…their silver…with them…because He has glorified you. 10The sons of foreigners shall build up your walls, and their kings shall minister to you… 11Your gates shall be open continually; they shall not be shut day or night, that men may bring to you the wealth of the Gentiles, and their kings in procession. (Isa. 60:5-11)
+><sup>5</sup>…The wealth of the Gentiles shall come to you [Jerusalem]… <sup>6</sup>They shall bring gold… <sup>9</sup>The ships of Tarshish will…bring…their silver…with them…because He has glorified you. <sup>10</sup>The sons of foreigners shall build up your walls, and their kings shall minister to you… <sup>11</sup>Your gates shall be open continually; they shall not be shut day or night, that men may bring to you the wealth of the Gentiles, and their kings in procession. (Isa. 60:5-11)
 
 H. Jerusalem is the only city in Scripture in which God commands kings to help Jews return to (Isa. 49:22-23; 60:9-14)
 
->22“Behold, I will lift My hand in an oath to the nations…they shall bring your sons in their arms, and your daughters shall be carried on their shoulders; 23kings shall be your foster fathers, and their queens your nursing mothers; they shall bow down to you…” (Isa. 49:22-23)
+><sup>22</sup>“Behold, I will lift My hand in an oath to the nations…they shall bring your sons in their arms, and your daughters shall be carried on their shoulders; <sup>23</sup>kings shall be your foster fathers, and their queens your nursing mothers; they shall bow down to you…” (Isa. 49:22-23)
 
->4…Your sons shall come from afar, and your daughters shall be nursed at your side…
-9And the ships of Tarshish will…bring your sons from afar. (Isa. 60:4, 9)
+><sup>4</sup>…Your sons shall come from afar, and your daughters shall be nursed at your side… <sup>9</sup>And the ships of Tarshish will…bring your sons from afar. (Isa. 60:4, 9)
 
 I. Jerusalem is the city which God establishes as the worship center for all nations (Zech. 14:17-18).
 
->17…whichever of the families of the earth do not come up to Jerusalem to worship the King, the LORD of hosts [Jesus], on them there will be no rain.
-18If the family of Egypt will not come up [to Jerusalem]…they shall have no rain; they shall receive the plague… (Zech. 14:17-18)
+><sup>17</sup>…whichever of the families of the earth do not come up to Jerusalem to worship the King, the LORD of hosts [Jesus], on them there will be no rain. <sup>18</sup>If the family of Egypt will not come up [to Jerusalem]…they shall have no rain; they shall receive the plague… (Zech. 14:17-18)
 
->22Yes, many peoples and strong nations shall come to seek the LORD of hosts in Jerusalem, and to pray before the LORD. (Zech. 8:22)
+><sup>22</sup>Yes, many peoples and strong nations shall come to seek the LORD of hosts in Jerusalem, and to pray before the LORD. (Zech. 8:22)
 
 J. Jerusalem is the first city on earth in which everyone will be born again and walk in righteousness (Isa. 60:21; Zech. 14:20-21).
 
->21Your people [Jerusalem] shall all be righteous…the work of My hands, that I may be glorified. (Isa. 60:21)
+><sup>21</sup>Your people [Jerusalem] shall all be righteous…the work of My hands, that I may be glorified. (Isa. 60:21)
 
->26All Israel will be saved…the Deliverer…will turn away ungodliness from Jacob. (Rom. 11:26)
+><sup>26</sup>All Israel will be saved…the Deliverer…will turn away ungodliness from Jacob. (Rom. 11:26)
 
 1. The people in Jerusalem will walk in holiness in every area of life—public, religious, private (Zech. 14:20-21).
 
->20In that day “HOLINESS TO THE LORD” shall be engraved on the bells of the horses. The pots in the LORD’s house [the temple] shall be like the bowls before the altar. 21Yes, every pot in Jerusalem…shall be holiness to the LORD of hosts. (Zech. 14:20-21)
+><sup>20</sup>In that day “HOLINESS TO THE LORD” shall be engraved on the bells of the horses. The pots in the LORD’s house [the temple] shall be like the bowls before the altar. <sup>21</sup>Yes, every pot in Jerusalem…shall be holiness to the LORD of hosts. (Zech. 14:20-21)
 
 2. The bells on horses represent their public life in the streets. The cooking pots in the temple represent Israel's religious life (14:20). Every pot in Jerusalem represents the private life in their homes (14:21). Even common things in their daily life will be dedicated to God as holy.
 
@@ -138,57 +135,57 @@ K. David established Jerusalem as a city to settle legal disputes, court cases, 
 
 L. Capturing Jerusalem was David's first recorded act as king (2 Sam. 5:7). David had revelation of God's special choice and love for Jerusalem, thus his first act as king was to conquer Jerusalem (2 Sam. 5:6-9). He then moved the ark of the covenant and made it the national worship center. Jerusalem had not been conquered by Israel even after 400 years of Israel entering the land
 
->3All the elders of Israel came to…Hebron…and anointed David king over Israel… 6The king and his men went to Jerusalem… 7David took the stronghold of Zion… (2 Sam. 5:3-7)
+><sup>3</sup>All the elders of Israel came to…Hebron…and anointed David king over Israel… <sup>6</sup>The king and his men went to Jerusalem… <sup>7</sup>David took the stronghold of Zion… (2 Sam. 5:3-7)
 
 1. When David killed Goliath, he cut off his head and brought it to Jerusalem.
 
->51David…killed him [Goliath], and cut off his head…54David took the head of the Philistine and brought it to Jerusalem, but he put his armor in his tent. (1 Sam. 17:51-54)
+><sup>51</sup>David…killed him [Goliath], and cut off his head…<sup>54</sup>David took the head of the Philistine and brought it to Jerusalem, but he put his armor in his tent. (1 Sam. 17:51-54)
 
 2. This foreshadowed God's promise to bruise the head of Satan (Gen. 3:15).
 
->15“And I [the Lord] will put enmity between you [Satan] and the woman, and between your seed and her Seed; He [Jesus] shall bruise your head, and you shall bruise His heel.” (Gen. 3:15)
+><sup>15</sup>“And I [the Lord] will put enmity between you [Satan] and the woman, and between your seed and her Seed; He [Jesus] shall bruise your head, and you shall bruise His heel.” (Gen. 3:15)
 
 M. Jerusalem is the only city where Jesus ascended into heaven (Acts 1:11)
 
 N. Jerusalem will be the first city to experience the fullness of the Spirit (Joel 2:1, 15-32).
 
->1Blow the trumpet in Zion [Jerusalem]…for the day of the LORD is coming, for it is at hand… 15Blow the trumpet in Zion [Jerusalem], consecrate a fast…17Let the priests, who minister to the LORD [at the Jerusalem temple], weep between the porch and the altar…28Afterward that I will pour out My Spirit on all flesh; your sons and your daughters [in Jerusalem] shall prophesy… 29Also on My menservants and on My maidservants [Gentile nations] I will pour out My Spirit in those days… 31The sun shall be turned into darkness, before the coming of the great day of the LORD… 32For in Jerusalem there shall be deliverance…among the remnant… (Joel 2:1, 15-32) 
+><sup>1</sup>Blow the trumpet in Zion [Jerusalem]…for the day of the LORD is coming, for it is at hand… <sup>15</sup>Blow the trumpet in Zion [Jerusalem], consecrate a fast…<sup>17</sup>Let the priests, who minister to the LORD [at the Jerusalem temple], weep between the porch and the altar…<sup>28</sup>Afterward that I will pour out My Spirit on all flesh; your sons and your daughters [in Jerusalem] shall prophesy… <sup>29</sup>Also on My menservants and on My maidservants [Gentile nations] I will pour out My Spirit in those days… <sup>31</sup>The sun shall be turned into darkness, before the coming of the great day of the LORD… <sup>32</sup>For in Jerusalem there shall be deliverance…among the remnant… (Joel 2:1, 15-32) 
 
 O. The Spirit will be poured out on Jerusalem in an unprecedented way in the 43rd month (Dan. 12:11).
 
->10“I will pour on…the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me [Jesus] whom they pierced. Yes, they will mourn for Him… (Zech. 12:10)
+><sup>10</sup>“I will pour on…the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me [Jesus] whom they pierced. Yes, they will mourn for Him… (Zech. 12:10)
 
 P. Jerusalem was the only city in which the Jesus’ priesthood according to Melchizedek was established and revealed (Gen. 14). Abraham met Melchizedek in Jerusalem.
 
 Q. Jerusalem is the only city that God promised to establish the two witnesses (Rev. 11:3-6). They will be the most powerful prophets ever seen by the nations—doing miracles like Moses and Elijah did.
 
->3I will give power to my two witnesses, and they will prophesy [1,260 days]…” 5Fire proceeds from their mouth and devours their enemies…6These have power to shut heaven, so that no rain falls…and have power over waters to turn them to blood, and to strike the earth with all plagues, as often as they desire… (Rev. 11:3-5)
+><sup>3</sup>I will give power to my two witnesses, and they will prophesy [1,260 days]…” <sup>5</sup>Fire proceeds from their mouth and devours their enemies…<sup>6</sup>These have power to shut heaven, so that no rain falls…and have power over waters to turn them to blood, and to strike the earth with all plagues, as often as they desire… (Rev. 11:3-5)
 
 R. Jerusalem is the only city before the Rapture in which multitudes across the nasions will literally watch two humans ascend physically to heaven even as the apostle saw Jesus ascend (Acts 1:10).
 
->7The beast [the Antichrist] will…kill them. 8And their dead bodies will lie in the street of the great city [Jerusalem]…where our Lord was crucified…11After [3½ days]…the breath of life from God entered them, and they stood on their feet…12They ascended to heaven in a cloud, and their enemies saw them. (Rev. 11:7-12)
+><sup>7</sup>The beast [the Antichrist] will…kill them. <sup>8</sup>And their dead bodies will lie in the street of the great city [Jerusalem]…where our Lord was crucified…<sup>11</sup>After [3½ days]…the breath of life from God entered them, and they stood on their feet…<sup>12</sup>They ascended to heaven in a cloud, and their enemies saw them. (Rev. 11:7-12)
 
 S. Jerusalem is the only city in which both God and the Devil will draw all the kings of the earth to (Joel 3:2, 12; cf. Zech. 12:3; 14:2; Zeph. 3:8; Ezek. 38:4; 39:2 Rev. 16:14-16; 17:14; 19:19-21). Both God and the Devil are bringing the nations to Jerusalem for very different reasons. God will bringing all the wicked nations there to kill them and then replace their governments). Satan will gather kings and nations there to kill the Jewish people and make war against Jesus (Rev. 16:14; 17:14; 19:19-21). Never have all the kings of the earth been in one city at the same time.
 
->19I saw the beast [Antichrist], the kings of the earth, and their armies, gathered together to make war against Him [Jesus]…and against His army. (Rev. 19:19)
+><sup>19</sup>I saw the beast [Antichrist], the kings of the earth, and their armies, gathered together to make war against Him [Jesus]…and against His army. (Rev. 19:19)
 
->14These [the 10 kings] will make war with the Lamb...for He is…King of kings. (Rev. 17:14)
+><sup>14</sup>These [the 10 kings] will make war with the Lamb...for He is…King of kings. (Rev. 17:14)
 
 T. Jerusalem is the only city in the Bible in which Jesus wept over because of her coming judgment (Lk. 19:41)
 
->41…He saw the city and wept over it, 42saying, “If you had known, even you, especially in this your day, the things that make for your peace! But now they are hidden from your eyes. 43For days will come upon you when your enemies will…surround you… 44and level you, and your children within you, to the ground; and they will not leave in you one stone upon… (Lk. 19:41-44)
+><sup>41</sup>…He saw the city and wept over it, <sup>42</sup>saying, “If you had known, even you, especially in this your day, the things that make for your peace! But now they are hidden from your eyes. <sup>43</sup>For days will come upon you when your enemies will…surround you… <sup>44</sup>and level you, and your children within you, to the ground; and they will not leave in you one stone upon… (Lk. 19:41-44)
 
 U. Jerusalem is the only city in which Jesus will have ever experienced physical violence (Mt 27:26-56; Mk. 15:15-41; Jn. 19:1-3, 17-37).
 
 V. Jerusalem is only city in which the Scripture identifies its acceptance of Jesus as a condition to His second coming (Mt. 23:37-39; Acts 3:19-21). Israel’s national repentance and confession that Jesus as Messiah is connected to Jesus’ second coming. Jesus will not return until the governmental leaders in Jerusalem acknowledge Him as Messiah according to Psalm 118:26. He will not take over Jerusalem until the covenant people ask Him to. The city will be under a siege at that time.
 
->37“O Jerusalem…39you shall see Me no more [Jesus’ return] till you say, ‘Blessed is He [Jesus] who comes in the name of the LORD [acknowledging Him as Messiah—Psalm 118:26].’” (Mt. 23:37-39)
+><sup>37</sup>“O Jerusalem…<sup>39</sup>you shall see Me no more [Jesus’ return] till you say, ‘Blessed is He [Jesus] who comes in the name of the LORD [acknowledging Him as Messiah—Psalm 118:26].’” (Mt. 23:37-39)
 
 W. Peter proclaimed that the Father would not send Jesus from heaven back to earth until many in Jerusalem and the nation of Israel repent (Acts 3:19-21).
 
->19Repent therefore and be converted, that your [Jerusalem’s] sins may be blotted out, so that…20He may send Jesus Christ…
+><sup>19</sup>Repent therefore and be converted, that your [Jerusalem’s] sins may be blotted out, so that…<sup>20</sup>He may send Jesus Christ…
 
->21whom heaven must receive [keep or retain] until the times of restoration of all things, which God has spoken by…all His holy prophets. (Acts 3:19-21)
+><sup>21</sup>whom heaven must receive [keep or retain] until the times of restoration of all things, which God has spoken by…all His holy prophets. (Acts 3:19-21)
 
 X. When the leaders of Jerusalem receive Jesus as King then Jesus will return to rule Jerusalem. At that time He casts Satan into prison (Rev. 20:1-3).
 
@@ -198,8 +195,8 @@ A. Jerusalem is the city that Satan's government is focused on attacking more th
 
 B. Jerusalem is the only city in which everyone on earth will be forced to decide to stand for or against it (Joel 3:14). The context of Joel 3 is the oppression and mistreatment of the Jewish people (3:1-6) .
 
->14Multitudes, multitudes in the valley of decision! For the day of the LORD is near in the valley of decision… 16The LORD will roar… from Jerusalem; the heavens and earth will shake… (Joel 3:1-16)
+><sup>14</sup>Multitudes, multitudes in the valley of decision! For the day of the LORD is near in the valley of decision… <sup>16</sup>The LORD will roar… from Jerusalem; the heavens and earth will shake… (Joel 3:1-16)
 
 C. Jerusalem is called the Valley of Decision (3:14) —in which the whole earth will have to decide where they stand related to God's purpose of Jerusalem and the oppression of the nations against it. The name of Jehoshaphat is also used to refer to the Kidron Valley which lies between Jerusalem and the Mount of Olives—it encircles the east side of Jerusalem.
 
->1“…at that time, when I bring back the captives of Judah and Jerusalem, 2I will also gather all nations, and bring them down to the Valley of Jehoshaphat [Jerusalem]; and I will enter into judgment with them there on account of My people…whom they have scattered among the nations… 3They have given a boy as payment for a harlot, and sold a girl for wine… The people of Jerusalem you have sold… 12Let the nations…come up to the Valley of Jehoshaphat [Jerusalem] … 4Multitudes, multitudes in the valley of decision! For the day of the LORD is near in the valley of decision… 16The LORD will roar…from Jerusalem… (Joel 3:1-16)
+><sup>1</sup>“…at that time, when I bring back the captives of Judah and Jerusalem, <sup>2</sup>I will also gather all nations, and bring them down to the Valley of Jehoshaphat [Jerusalem]; and I will enter into judgment with them there on account of My people…whom they have scattered among the nations… <sup>3</sup>They have given a boy as payment for a harlot, and sold a girl for wine… The people of Jerusalem you have sold… <sup>12</sup>Let the nations…come up to the Valley of Jehoshaphat [Jerusalem] … <sup>14</sup>Multitudes, multitudes in the valley of decision! For the day of the LORD is near in the valley of decision… <sup>16</sup>The LORD will roar…from Jerusalem… (Joel 3:1-16)

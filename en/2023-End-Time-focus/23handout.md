@@ -9,7 +9,7 @@ A. Summary of the message: The beauty of Jesus as Bridegroom, King, and Judge re
 
 B. Isaiah prophesied that the Messiah would establish justice in all the nations (Isa. 42:1, 4). The full release of justice in the end times involves many positive and seemingly “negative” activities.
 
->1I have put My Spirit upon Him [Jesus]; He will bring forth justice to the Gentiles [worldwide]… 4He will not fail nor be discouraged, till He has established justice in the earth… (Isa. 42:1, 4)
+><sup>1</sup>I have put My Spirit upon Him [Jesus]; He will bring forth justice to the Gentiles [worldwide]… <sup>4</sup>He will not fail nor be discouraged, till He has established justice in the earth… (Isa. 42:1, 4)
 
 C. Optimum environment: God is establishing the optimum environment for His people to walk in love and purity. God uses the least severe means to bring the greatest number of people to the deepest level of love. What the devil means for evil, God will use for good to train His people. ‘
 
@@ -23,7 +23,7 @@ B. #1 Return of Jesus: Jesus’ royal procession will be seen by every person (R
 
 C. #2 Rapture: The rapture will occur when Jesus returns to “catch up” all believers in the air.
 
->29Immediately after the tribulation of those days…30All the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds…31He will send His angels…they will gather together His elect [the rapture]…from one end of heaven to the other. (Mt. 24:29-31)
+><sup>29</sup>Immediately after the tribulation of those days…<sup>30</sup>All the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds…<sup>31</sup>He will send His angels…they will gather together His elect [the rapture]…from one end of heaven to the other. (Mt. 24:29-31)
 
 D. #3 Millennial Kingdom: Jesus will return to rule over all nations for 1,000 years (Rev. 20:4-6). At this time, Satan will be cast into prison (Rev. 20:1-3) and God’s kingdom with righteousness will be openly manifested worldwide, affecting every sphere of life (education, politics, agriculture, economics, social institutions, etc.). Jesus will restore the agriculture, animal life, and atmosphere to the conditions seen in Eden (Isa. 11:1-16; 51:1-8; 60-62; 65:17-25).
 
@@ -51,7 +51,7 @@ O. #14 Rebuilding the temple—it is referred to as the temple of God (2 Thes. 2
 
 P. #15 Salvation of Israel: Israel is the first nation in which every person will be saved (Rom. 11:26). Israel will be provoked to spiritual jealousy to experience have what Gentile believers possess in their relationship with the God of Israel (Rom. 11:11). This only occurs as the Church walks in the fullness of the Gentiles and as they love and stand for God’s purposes for Israel (Jer. 31:7-10).
 
->11Through their [Israel’s] fall, to provoke them to jealousy, salvation [leadership] has come to the Gentiles…25blindness in part has happened to Israel until the fullness of the Gentiles has come in. 26So all Israel will be saved… (Rom. 11:11, 25-26)
+><sup>11</sup>Through their [Israel’s] fall, to provoke them to jealousy, salvation [leadership] has come to the Gentiles…<sup>25</sup>blindness in part has happened to Israel until the fullness of the Gentiles has come in. <sup>26</sup>So all Israel will be saved… (Rom. 11:11, 25-26)
 
 ## III. THE NEGATIVE TRENDS, PEOPLE, AND EVENTS—ABOUT 15 CATEGORIES
 
@@ -59,7 +59,7 @@ A. Jesus’ “Justice Masterplan” includes raising up the Antichrist with unp
 
 B. #1 The Great Tribulation will be the most difficult, powerful, and important 3½ years in history.
 
->21There will be great tribulation, such as has not been since the beginning of the world...nor ever shall be. 22Unless those days were shortened, no flesh would be saved [physically]; (Mt. 24:21-22)
+><sup>21</sup>There will be great tribulation, such as has not been since the beginning of the world...nor ever shall be. <sup>22</sup>Unless those days were shortened, no flesh would be saved [physically]; (Mt. 24:21-22)
 
 C. #2 The Antichrist (Rev. 13:1-10) will wage war against Jesus and His people as the most powerful leader in history. In light of his 10-nation confederation, he will have the largest army and religious network using demonic miracles to deceive and political processes to kill resistors (Rev. 13:12-18).
 
@@ -87,7 +87,7 @@ N. #13 The battle for Jerusalem: All nations will gather to fight against Jerusa
 
 O. #14 Sin expressed in fullness: People embracing sin in the greatest measure (Dan. 8:23; Rev. 9:21).
 
->21They did not repent of their murders…sorceries …sexual immorality or their thefts. (Rev. 9:21)
+><sup>21</sup>They did not repent of their murders…sorceries …sexual immorality or their thefts. (Rev. 9:21)
 
 P. #15 The spirit of delusion: Released by God on those who do not love the truth (2 Thes. 2:11).
 

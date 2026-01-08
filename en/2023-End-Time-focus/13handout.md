@@ -7,31 +7,31 @@
 
 A. Persecution is both a demonic attack to hinder our spiritual growth and a divine gift to enhance it. God granted and appointed that His people endure persecution (1 Thes. 3:3; Phil. 1:29) that they may be transformed by it for their great benefit in this age and in the age to come.
 
->29For to you it has been granted on behalf of Christ…to suffer for His sake… (Phil. 1:29)
+><sup>29</sup>For to you it has been granted on behalf of Christ…to suffer for His sake… (Phil. 1:29)
 
->17For our light affliction…is working for us a far more exceeding and eternal weight of glory… (2 Cor. 4:17)
+><sup>17</sup>For our light affliction…is working for us a far more exceeding and eternal weight of glory… (2 Cor. 4:17)
 
 B. The apostles rejoiced in being “counted worthy” to suffer knowing it transformed them by the Spirit of glory (1 Pet. 4:14) and how precious it is to have it in their testimony when they stand before God.
 
->41They departed…rejoicing that they were counted worthy to suffer…for His name. (Acts 5:41)
+><sup>41</sup>They departed…rejoicing that they were counted worthy to suffer…for His name. (Acts 5:41)
 
->14If you are reproached for the name of Christ…the Spirit of glory…rests upon you. (1 Pet. 4:14)
+><sup>14</sup>If you are reproached for the name of Christ…the Spirit of glory…rests upon you. (1 Pet. 4:14)
 
 C. On Tuesday (Mt. 24-25) and Thursday (Jn. 13-17) of Jesus’ final week of ministry, He elaborated on what discipleship includes—highlighting the joyful and painful aspects. On Tuesday, Jesus prophesied that, in the end times before He returns, “all nations” will hate His disciples (Mt. 24:9).
 
->8All these are the beginning of sorrows [birth pains]. 9Then…you will be hated by all nations… 12lawlessness will abound…14the gospel…will be preached…to all the nations…” (Mt. 24:8-14)
+><sup>8</sup>All these are the beginning of sorrows [birth pains]. <sup>9</sup>Then…you will be hated by all nations… <sup>12</sup>lawlessness will abound…<sup>14</sup>the gospel…will be preached…to all the nations…” (Mt. 24:8-14)
 
 D. Jesus told them that the world would hate them but that hatred was actually against Him (Jn. 15:18) . We must settle it that we will not escape their hatred if we speak the truth about Jesus and His message. The world hates Jesus’ teaching on man’s sin and guilt, His claim to be their God, judge, and the only way of salvation. Jesus was not saying that the people lacked personal sin (Rom. 3:23) but that Israel would not have had the national guilt related to rejecting Him as Messiah.
 
->18“If the world hates you, you know that it hated Me before it hated you. 20…If they persecuted Me, they will persecute you… 22If I had not…spoken to them, they would have no sin [national guilt for rejecting Me]…” (Jn. 15:18-22)
+><sup>18</sup>“If the world hates you, you know that it hated Me before it hated you. <sup>20</sup>…If they persecuted Me, they will persecute you… <sup>22</sup>If I had not…spoken to them, they would have no sin [national guilt for rejecting Me]…” (Jn. 15:18-22)
 
 E. John 15 is the “intimacy with God” chapter (15:1-17). Intimacy with God is essential to being empowered to walk in joy when being persecuted (15:18-25). Some focus on understanding the end times but without prioritizing intimacy with God, while others focus on intimacy without interest in understanding Jesus’ end-time plan—both are essential!
 
 F. The promise of the seal of divine love in Song 8:6 includes the Lord giving the worldwide body of Christ grace to give our lives for love even unto martyrdom—“love as strong as death”(Rev. 12:11). Specifically, this love is love for the Bridegroom King who loved us and gave Himself up for us.
 
->6Set Me as a seal upon your heart…for love is as strong as death… (Song 8:6)
+><sup>6</sup>Set Me as a seal upon your heart…for love is as strong as death… (Song 8:6)
 
->11They overcame him [Satan]…they did not love their lives to the death. (Rev. 12:11)
+><sup>11</sup>They overcame him [Satan]…they did not love their lives to the death. (Rev. 12:11)
 
 ## II. MILLIONS OF CHRISTIANS ARE ENDURING PERSECUTION TODAY
 
@@ -43,19 +43,19 @@ C. Pope John Paul II established the Commission for Martyrs which researched and
 
 D. Christians enduring persecution in end-time prophecy is a sober reality (Mt. 10:21-22, 28; 24:9; Lk. 21:16-19; Jn. 15:18-25; Rev. 6:9-11; 11:7; 12:11, 17; 13:7, 10;16:5-7; 17:6; 18:24; 19:2; 20:4).
 
->9He opened the fifth seal; I saw…the souls of those who had been slain for the word of God… 11They [were to] rest…until the number…who would be killed…was completed. (Rev. 6:9-11)
+><sup>9</sup>He opened the fifth seal; I saw…the souls of those who had been slain for the word of God… <sup>11</sup>They [were to] rest…until the number…who would be killed…was completed. (Rev. 6:9-11)
 
->6I saw the woman [Harlot Babylon], drunk with the blood of…the martyrs of Jesus. (Rev. 17:6)
+><sup>6</sup>I saw the woman [Harlot Babylon], drunk with the blood of…the martyrs of Jesus. (Rev. 17:6)
 
 E. John urged us to anticipate being hated for standing for truth and not be shocked when it happens.
 
->13Do not marvel [be shocked or surprised], my brethren, if the world hates you. (1 Jn. 3:13)
+><sup>13</sup>Do not marvel [be shocked or surprised], my brethren, if the world hates you. (1 Jn. 3:13)
 
 ## III. RESPONDING TO END-TIME PROPHESIES OF PERSECUTION: 3 APPLICATIONS
 
 A. Application #1: To arm ourselves to suffer: Peter gave a “military call” to arm or equip ourselves for battle. First, by developing a biblical understanding of persecution—why God allows it to happen, what are the benefits for our personal life and for those who observe it, and what are the eternal rewards that follow. Second, by cultivating an intimate relationship with Jesus (Mt. 25:4; Jn. 15:1-17). Third, by cultivating deep kingdom relationships with wholehearted believers.
 
->1…since Christ suffered for us in the flesh, arm yourselves also with the same mind… (1 Pet. 4:1)
+><sup>1</sup>…since Christ suffered for us in the flesh, arm yourselves also with the same mind… (1 Pet. 4:1)
 
 B. Application #2: To prepare young believers: We must prepare young believers for persecution.
 

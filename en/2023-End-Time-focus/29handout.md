@@ -83,69 +83,68 @@
 
 A. Jerusalem is the only city in the Bible in which the Lord declares His zeal for (Zech. 1:14; 8:2-3). An angel commanded Zechariah “to proclaim God's zeal for Jerusalem” (Zech. 1:14; 8:2). The Lord feels zeal and affection for Zion or Jerusalem. We love Jerusalem because Jesus does therefore, we ask the Holy Spirit to teach us what Jesus sees and feels about Jerusalem.
 
->14The angel who spoke with me said to me, “Proclaim, saying, ‘Thus says the LORD of hosts: “I am zealous for Jerusalem and for Zion with great zeal. (Zech. 1:14)
+><sup>14</sup>The angel who spoke with me said to me, “Proclaim, saying, ‘Thus says the LORD of hosts: “I am zealous for Jerusalem and for Zion with great zeal. (Zech. 1:14)
 
->2...“I am zealous for Zion with great zeal; with great fervor I am zealous for her. (Zech. 8:2)
+><sup>2</sup>...“I am zealous for Zion with great zeal; with great fervor I am zealous for her. (Zech. 8:2)
 
 B. Jerusalem is the only city on the earth that Jesus called His own city (Mt. 5:35)
 
->35[Jesus said] “…Jerusalem…is the city of the great King. (Mt. 5:35)
+><sup>35</sup>[Jesus said] “…Jerusalem…is the city of the great King. (Mt. 5:35)
 
 C. Jerusalem is the only city in which Jesus will live in forever (Zech. 2:10-13). . He determined this before Genesis 1.
 
->10“…I am coming and I will dwell in your midst,” says the LORD. 11Many nations shall be joined to the LORD in that day…I will dwell in your midst… 12The LORD will take possession of Judah as His inheritance… 13Be silent, all flesh, before the LORD, He is aroused from His holy habitation!” (Zech. 2:10-13)
+><sup>10</sup>“…I am coming and I will dwell in your midst,” says the LORD. <sup>11</sup>Many nations shall be joined to the LORD in that day…I will dwell in your midst… <sup>12</sup>The LORD will take possession of Judah as His inheritance… <sup>13</sup>Be silent, all flesh, before the LORD, He is aroused from His holy habitation!” (Zech. 2:10-13)
 
->3I will return to Zion, and dwell in the midst of Jerusalem. Jerusalem shall be called the City of Truth, the Mountain of the LORD of hosts, the Holy Mountain.’ (Zech. 8:3)
+><sup>3</sup>I will return to Zion, and dwell in the midst of Jerusalem. Jerusalem shall be called the City of Truth, the Mountain of the LORD of hosts, the Holy Mountain.’ (Zech. 8:3)
 
->13For the LORD has chosen Zion [Jerusalem]; He has desired it for His [eternal] dwelling place: 14“This is My resting place forever; here I will dwell, for I have desired it.” (Ps. 132:13-14)
+><sup>13</sup>For the LORD has chosen Zion [Jerusalem]; He has desired it for His [eternal] dwelling place: <sup>14</sup>“This is My resting place forever; here I will dwell, for I have desired it.” (Ps. 132:13-14)
 
 D. Jerusalem is the only city in which the Lord puts His Name (2 Chr. 6:6).
 
->6I have chosen Jerusalem that My name may be there… (2 Chr. 6:6)
+><sup>6</sup>I have chosen Jerusalem that My name may be there… (2 Chr. 6:6)
 
 E. Jerusalem is the only city on earth that is named after the heavenly Jerusalem (Rev. 3:12; 21:2, 10)
 
->2I, John, saw the holy city, New Jerusalem…prepared as a bride adorned for her husband… 10And he [an angel]…showed me the great city, the holy Jerusalem, descending out of heaven from God, 11having the glory of God. Her light was like a most precious stone…clear as crystal. (Rev. 21:2, 10-11)
+><sup>2</sup>I, John, saw the holy city, New Jerusalem…prepared as a bride adorned for her husband… <sup>10</sup>And he [an angel]…showed me the great city, the holy Jerusalem, descending out of heaven from God, <sup>11</sup>having the glory of God. Her light was like a most precious stone…clear as crystal. (Rev. 21:2, 10-11)
 
 F. Jerusalem is the only city that God and the nations will call “The Throne of God” (Jer. 3:17). Jerusalem will be the capital of Jesus’ worldwide government and all nations will be gathered to it.
 
->17At that time Jerusalem shall be called The Throne of the LORD, and all the nations shall be gathered to it, to the name of the LORD, to Jerusalem. (Jer. 3:17)
+><sup>17</sup>At that time Jerusalem shall be called The Throne of the LORD, and all the nations shall be gathered to it, to the name of the LORD, to Jerusalem. (Jer. 3:17)
 
->31When the Son of Man comes in His glory…then He will sit on the throne of His glory 32All the nations will be gathered before Him, and He will separate them… (Mt. 25:31-32)
+><sup>31</sup>When the Son of Man comes in His glory…then He will sit on the throne of His glory <sup>32</sup>All the nations will be gathered before Him, and He will separate them… (Mt. 25:31-32)
 
 G. Jerusalem is the only city that Jesus will build His temple to rule from when He returns (Zech. 6:12)
 
->12“…and He shall build the temple of the LORD; 13Yes, He shall build the temple of the LORD. He shall bear the glory, and shall…rule on His throne; so He shall be a priest on His throne…” (Zech. 6:12-13)
+><sup>12</sup>“…and He shall build the temple of the LORD; <sup>13</sup>Yes, He shall build the temple of the LORD. He shall bear the glory, and shall…rule on His throne; so He shall be a priest on His throne…” (Zech. 6:12-13)
 
->6I heard Him [Jesus] speaking to me from the temple…7And He said to me, “Son of man, this is the place of My throne and…where I will dwell in the midst of the children of Israel forever. (Ezek. 43:6-7)
+><sup>6</sup>I heard Him [Jesus] speaking to me from the temple…<sup>7</sup>And He said to me, “Son of man, this is the place of My throne and…where I will dwell in the midst of the children of Israel forever. (Ezek. 43:6-7)
 
 H. Jerusalem is the only city that many rabbis claim was in proximity to the garden of Eden. Mount Moriah is the place where Abraham was instructed by God to sacrifice his son Isaac (Genesis 22:2). Mount Moriah is the location of the Temple Mount in Jerusalem, and some rabbis see a connection between this biblical story and the idea that Eden may have been nearby. Over many centuries, Jewish rabbinic tradition has associated Jerusalem with the creation of Adam and Eve.
 
 I. Jerusalem is the only city Abraham left his home to look for— Jerusalem is the city whose builder was God (Heb 11:9-10).
 
->9By faith he [Abraham]… 10he waited for the city [Jerusalem] which has foundations, whose builder and maker is God. (Heb. 11:9-10)
+><sup>9</sup>By faith he [Abraham]… <sup>10</sup>he waited for the city [Jerusalem] which has foundations, whose builder and maker is God. (Heb. 11:9-10)
 
 1. Abraham was from Ur of the Chaldeans (Gen 11:28). He initially left there with his father Terah and family to go to Canaan (Gen. 11:31). However, they settled in the city of Haran along the way.. The city of Ur of the Chaldeans was located in Mesopotamia (present-day southern Iraq).
 
->1The LORD had said to Abram: “Get out of your country…and from your father’s house, to a land that I will show you… 4Abram was 75 years old when he departed from Haran.
-(Gen. 12:1-4)
+><sup>1</sup>The LORD had said to Abram: “Get out of your country…and from your father’s house, to a land that I will show you… <sup>4</sup>Abram was 75 years old when he departed from Haran. (Gen. 12:1-4)
 
->31And Terah took his son Abram and his grandson Lot, the son of Haran, and…Sarai, his son Abram’s wife, and they went out…from Ur of the Chaldeans to go to the land of Canaan; and they came to Haran and dwelt there. (Gen. 11:31)
+><sup>31</sup>And Terah took his son Abram and his grandson Lot, the son of Haran, and…Sarai, his son Abram’s wife, and they went out…from Ur of the Chaldeans to go to the land of Canaan; and they came to Haran and dwelt there. (Gen. 11:31)
 
 2. God showed Moses that the place had already been chosen ( Deut. 12:5). God picked Jerusalem (before Gen. 1), as His worldwide governmental worship teaching center.
 
->5“You shall seek the place where the LORD your God chooses, out of all your tribes, to put His name for His dwelling place; and there you shall go. 6There you shall take your burnt offerings, your sacrifices, your tithes…7There you shall eat before the LORD…” (Deut. 12:5-7)
+><sup>5</sup>“You shall seek the place where the LORD your God chooses, out of all your tribes, to put His name for His dwelling place; and there you shall go. <sup>6</sup>There you shall take your burnt offerings, your sacrifices, your tithes…<sup>7</sup>There you shall eat before the LORD…” (Deut. 12:5-7)
 
 3. An angel directed David to the place that the temple would be build. An angel commanded the prophet Gad to tell David where to erect an altar to God to make an offering to God to stop a plague sent as God's judgment for David’s sin in numbering Israel. It was on this site that Solomon built the Temple— also known as Mount Moriah and the Temple Mount,
 
->18Therefore, the angel of the LORD commanded Gad to say to David that David should go and erect an altar to the LORD on the threshing floor of Ornan the Jebusite.” (1 Chr. 21:18)
+><sup>18</sup>Therefore, the angel of the LORD commanded Gad to say to David that David should go and erect an altar to the LORD on the threshing floor of Ornan the Jebusite.” (1 Chr. 21:18)
 
 J. Jerusalem is the only city on earth in which the Lord declared that He loves its gates. He loved the gates of the temple more than the other cities in Israel.
 
->2The LORD loves the gates of Zion more than all the dwellings of Jacob. (Ps. 87:2)
+><sup>2</sup>The LORD loves the gates of Zion more than all the dwellings of Jacob. (Ps. 87:2)
 
->67He…did not choose the tribe of Ephraim, 68but chose…Mount Zion which He loved. (Ps. 78:67-69)
+><sup>67</sup>He…did not choose the tribe of Ephraim, <sup>68</sup>but chose…Mount Zion which He loved. (Ps. 78:67-69)
 
 K. Jerusalem is the only city that God's set at the center of the nasions and thus has a significant role in many of biblical end-time prophecies (Ezek. 5:5; NAS). Jerusalem is the only city that has a significant role in many of biblical end-time prophecies. Thus, end-time prophecy is “Jerusalem centric” (Isa. 1-4; 9-14; 24-28; 30-35; 40-45; 49-66; Jer. 30-33; Ezek. 33-48; Dan. 7-12; Hos. 1-3; 14; Joel 2-3; Mic. 4-5; 7; Zech. 1-14; Mal. 3-4, etc.). Jerusalem is the center of God’s purposes—spiritually, geographically, and eschatologically.
 
->5This is Jerusalem; I have set her at the center of the nations… (Ezek. 5:5; NAS)
+><sup>5</sup>This is Jerusalem; I have set her at the center of the nations… (Ezek. 5:5; NAS)

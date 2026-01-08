@@ -15,11 +15,11 @@ C. Zechariah’s message has several paradoxes. Israel will see both revival and
 
 A. The Lord introduces this oracle by reminding us that He has the power to create the heavens, the earth, and all humanity (12:1). The fact that He formed the spirit of man assures Israel that He understands the human make-up and knows that His plan will work in leading Israel to salvation.
 
->1The burden of the word of the LORD against Israel. Thus says the LORD, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him. (Zech. 12:1)
+><sup>1</sup>The burden of the word of the LORD against Israel. Thus says the LORD, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him. (Zech. 12:1)
 
 B. The end-time siege around Jerusalem (12:2-3): This same siege is described again (14:2).
 
->2“Behold, I will make Jerusalem a cup of drunkenness to all the surrounding peoples [nations], when they lay siege against Judah and Jerusalem. 3And it shall happen in that day that I will make Jerusalem a very heavy stone for all peoples [nations]; all who would heave it away will surely be cut in pieces, though all nations of the earth are gathered against it.” (Zech. 12:2-3)
+><sup>2</sup>“Behold, I will make Jerusalem a cup of drunkenness to all the surrounding peoples [nations], when they lay siege against Judah and Jerusalem. <sup>3</sup>And it shall happen in that day that I will make Jerusalem a very heavy stone for all peoples [nations]; all who would heave it away will surely be cut in pieces, though all nations of the earth are gathered against it.” (Zech. 12:2-3)
 
 C. Cup of drunkenness: The nations that resist God’s purpose for Jerusalem will become like a man who is so drunk that he staggers and falls, being in a stupor and a powerless state of helplessness.
 
@@ -29,21 +29,21 @@ D. Heavy stone: God will make Jerusalem like a very heavy rock with sharp edges 
 
 A. Zechariah described aspects of the battle (12:4-9). The Lord will destroy the Antichrist’s armies surrounding Jerusalem by releasing confusion and a spirit of insanity on his armies (12:4).
 
->4In that day…I will strike every horse with confusion, and its rider with madness; I will open My eyes on the house of Judah, and will strike every horse…with blindness. (Zech. 12:4)
+><sup>4</sup>In that day…I will strike every horse with confusion, and its rider with madness; I will open My eyes on the house of Judah, and will strike every horse…with blindness. (Zech. 12:4)
 
 B. The Lord will supernaturally empower the small Israeli army as a weapon in His hand (12:6).
 
->5“The governors of Judah shall say in their heart, ‘The inhabitants of Jerusalem are my strength in the LORD…’ 6I will make the governors of Judah like a firepan in the woodpile, and like a fiery torch in the sheaves; they shall devour all the surrounding peoples…” (Zech. 12:5-6)
+><sup>5</sup>“The governors of Judah shall say in their heart, ‘The inhabitants of Jerusalem are my strength in the LORD…’ <sup>6</sup>I will make the governors of Judah like a firepan in the woodpile, and like a fiery torch in the sheaves; they shall devour all the surrounding peoples…” (Zech. 12:5-6)
 
 C. Several times in this oracle the Lord promised to deliver Israel (12:9; 13:9; 14:3).
 
->9“…I will seek to destroy all the nations that come against Jerusalem.” (Zech. 12:9)
+><sup>9</sup>“…I will seek to destroy all the nations that come against Jerusalem.” (Zech. 12:9)
 
 ## IV. ISRAEL’S NATIONAL SALVATION (ZECH. 12:10-14)
 
 A. Zechariah describes Israel’s national repentance and conversion (12:10-14). His focus changes from the physical battle around Jerusalem in 12:2-9 to Israel’s spiritual deliverance in 12:10. After Jesus defeats Israel’s physical enemies, He will confront their greatest enemy—their sin and unbelief.
 
->10“I will pour on the house of David and on the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me [Jesus] whom they pierced. Yes, they will mourn for Him as one mourns for his only son and grieve for Him as one grieves for a firstborn. (Zech. 12:10)
+><sup>10</sup>“I will pour on the house of David and on the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me [Jesus] whom they pierced. Yes, they will mourn for Him as one mourns for his only son and grieve for Him as one grieves for a firstborn. (Zech. 12:10)
 
 B. I will pour the Spirit of grace: The Spirit of grace and supplication refers to the anointing of revelation, power, and prayer. This will result in many Jewish people coming to salvation.
 
@@ -51,11 +51,11 @@ C. They will look on Me: Israel will see Jesus and grieve for Him.
 
 1. Paul’s turning to Jesus is a prophetic foreshadowing of Israel’s national salvation.
 
->4He fell to the ground, and heard a voice…, “Saul, Saul, why are you persecuting Me?” 5And he said, “Who are You, Lord?” The Lord said, “I am Jesus…” (Acts 9:4-5)
+><sup>4</sup>He fell to the ground, and heard a voice…, “Saul, Saul, why are you persecuting Me?” <sup>5</sup>And he said, “Who are You, Lord?” The Lord said, “I am Jesus…” (Acts 9:4-5)
 
 2. Jesus and John referred to this prophecy that Israel would look on Jesus (Mt. 24:30; Rev. 1:7).
 
->7He is coming with clouds, and every eye will see Him, even they who pierced Him [Israel]. And all the tribes of the earth [Gentiles] will mourn because of Him. (Rev. 1:7)
+><sup>7</sup>He is coming with clouds, and every eye will see Him, even they who pierced Him [Israel]. And all the tribes of the earth [Gentiles] will mourn because of Him. (Rev. 1:7)
 
 D. Whom they pierced: Israel will discover that “piercing” Jesus was equivalent to rejecting God.
 
@@ -63,7 +63,7 @@ E. They will mourn for Him: He described how the Jewish people will feel when th
 
 F. Israel’s national repentance and mourning is graphically described (12:11-14).
 
->11“There shall be a great mourning in Jerusalem, like the mourning at Hadad Rimmon in the plain of Megiddo. 12And the land shall mourn, every family by itself: the family of the house of David by itself, and their wives by themselves; the family of the house of Nathan by itself, and their wives by themselves; 13the family of the house of Levi by itself, and their wives by themselves; the family of Shimei by itself, and their wives by themselves…” (Zech. 12:11-13)
+><sup>11</sup>“There shall be a great mourning in Jerusalem, like the mourning at Hadad Rimmon in the plain of Megiddo. <sup>12</sup>And the land shall mourn, every family by itself: the family of the house of David by itself, and their wives by themselves; the family of the house of Nathan by itself, and their wives by themselves; <sup>13</sup>the family of the house of Levi by itself, and their wives by themselves; the family of Shimei by itself, and their wives by themselves…” (Zech. 12:11-13)
 
 G. Hadad Rimmon: Zechariah compared Israel’s national mourning over Jesus to the mourning at Hadad Rimmon in the plain of Megiddo. This is where King Josiah was mortally wounded in battle nearly 100 years earlier in 609 BC (2 Kgs. 23:29-30; 2 Chr. 35:22-25).
 
@@ -77,7 +77,7 @@ A. Zechariah 13 continues with the theme of Israel’s national salvation and sp
 
 B. Israel’s national cleansing is from sin, idols, false prophets, and an unclean spirit (13:1-6).
 
->1“In that day a fountain shall be opened for the house of David and for the inhabitants of Jerusalem, for sin and for uncleanness. 2It shall be in that day…that I will cut off the names of the idols…I will also cause the [false] prophets and the unclean spirit to depart from the land.” (Zech. 13:1-2)
+><sup>1</sup>“In that day a fountain shall be opened for the house of David and for the inhabitants of Jerusalem, for sin and for uncleanness. <sup>2</sup>It shall be in that day…that I will cut off the names of the idols…I will also cause the [false] prophets and the unclean spirit to depart from the land.” (Zech. 13:1-2)
 
 1. A fountain shall be opened: Jesus will open a fountain for the spiritual cleansing of Israel—for its people and land. He will cleanse Israel from all vestiges of falsehood. There will be many false prophets and idols in the end times (Mt. 24:4-5, 11, 24; Rev. 9:21; 13:4-18).
 
@@ -89,7 +89,7 @@ B. Israel’s national cleansing is from sin, idols, false prophets, and an uncl
 
 C. The cleansing of the land will result in false prophets being afraid of being discovered (13:3-6). He presented a hypothetical scenario related to a false prophet. Zeal for purity will be so great that the parents of a false prophet would put their son to death as the Law commanded (Deut. 13:6-9).
 
->3“If anyone still prophesies, then his father and mother…will say to him, ‘You shall not live, because you have spoken lies in the name of the LORD.’ His father and mother…shall thrust him through when he prophesies…4Every prophet will be ashamed of his vision…they will not wear a robe of coarse hair to deceive. 5He will say, ‘I am no prophet. I am a farmer, for a man taught me to keep cattle from my youth.’ 6One will say to him, ‘What are these wounds between your arms?’ He will answer, ‘Those with which I was wounded in the house of my friends.’” (Zech. 13:3-6)
+><sup>3</sup>“If anyone still prophesies, then his father and mother…will say to him, ‘You shall not live, because you have spoken lies in the name of the LORD.’ His father and mother…shall thrust him through when he prophesies…<sup>4</sup>Every prophet will be ashamed of his vision…they will not wear a robe of coarse hair to deceive. <sup>5</sup>He will say, ‘I am no prophet. I am a farmer, for a man taught me to keep cattle from my youth.’ <sup>6</sup>One will say to him, ‘What are these wounds between your arms?’ He will answer, ‘Those with which I was wounded in the house of my friends.’” (Zech. 13:3-6)
 
 1. Thrust him through: It will dangerous for false prophets in the Millennium when Jesus rules with a rod of iron (Rev. 12:5; 19:15; cf. Ps. 2:9; Isa. 11:4).
 
@@ -103,15 +103,13 @@ C. The cleansing of the land will result in false prophets being afraid of being
 
 A. The remnant of Israel will be refined through the fire of the Tribulation, resulting in their salvation (13:7-9). Zechariah shifted his attention from the false prophets (13:3-6) to the true prophet Jesus (13:7). He returned to the theme of the Shepherd that the Lord sent to Israel in 11:4-14.
 
->7“Awake, O sword, against My Shepherd [Jesus], against the Man who is My Companion,” says the LORD…“Strike the Shepherd, and the sheep will be scattered…8It shall come to pass in all the land…that two-thirds in it shall be cut off and die…
-9I will bring the one-third through the fire, will refine them as silver is refined, and test them as gold is tested. They will call on My name, and I will answer them. I will say, ‘This is My people’; and each one will say, ‘The LORD is my
-God.’” (Zech. 13:7-9)
+><sup>7</sup>“Awake, O sword, against My Shepherd [Jesus], against the Man who is My Companion,” says the LORD…“Strike the Shepherd, and the sheep will be scattered…<sup>8</sup>It shall come to pass in all the land…that two-thirds in it shall be cut off and die… <sup>9<sup>I will bring the one-third through the fire, will refine them as silver is refined, and test them as gold is tested. They will call on My name, and I will answer them. I will say, ‘This is My people’; and each one will say, ‘The LORD is my God.’” (Zech. 13:7-9)
 
 B. Awake, O sword: The sword, personified, is called to “awake” from sleep to execute God’s justice against those who killed Messiah. The Father “awakened His sword” against His Son at the cross.
 
 C. The Father called Jesus, “My Shepherd,” “the Man,” and “My Companion” (13:7). In these three descriptions we see the great mystery of the incarnation, God in the flesh (1 Tim. 3:16).
 
->7“Awake, O sword, against My Shepherd, against the Man who is My Companion”... (Zech. 13:7)
+><sup>7</sup>“Awake, O sword, against My Shepherd, against the Man who is My Companion”... (Zech. 13:7)
 
 1. My Shepherd: Jesus is the Father’s choice to be the Messiah—the “Shepherd of Israel” and the Father's official representative to Israel and the nations (Jn. 14:7-9).
 

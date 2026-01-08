@@ -15,9 +15,9 @@ D. The most-repeated warning in Scripture about the end times is not to be decei
 
 E. We are spiritually prepared as we gain “living understanding” of Jesus and His excellent leadership. The Lord will raise up “people of understanding” who will help others to understand the biblical end-time narrative (Dan. 11:33; 12:10; Jer. 23:20; 30:24).
 
->33Those of the people who understand [end-time messengers] shall instruct many… (Dan. 11:33)
+><sup>33</sup>Those of the people who understand [end-time messengers] shall instruct many… (Dan. 11:33)
 
->20…the LORD [in judgment] will not turn back…in the latter days you will understand it perfectly. (Jer. 23:20)
+><sup>20</sup>…the LORD [in judgment] will not turn back…in the latter days you will understand it perfectly. (Jer. 23:20)
 
 ## II. BEGINNING OF BIRTH PAINS: 1ST PROPHETIC TIME FRAME BEFORE JESUS RETURNS
 
@@ -59,7 +59,7 @@ C. During this time, also watch for the following political and religious develo
 
 4. Rebuilding of Babylon as a global economic center (Rev. 17-18). The ancient city of Babylon on the Euphrates River in Iraq was about 50 miles south of Baghdad. The Antichrist will establish a global economic center there (Jer. 50-51; Zech. 5:5-11). This center will not need to include a lot of land—possibly it may just be several hundreds of acres or so?
 
->6I asked, “What is it?” And he [an angel] said, “It is a basket [ephah, NAS or a measuring basket] that is going forth.” He also said, “This is their resemblance throughout the earth: 7Here…a woman sitting inside the basket…8[she] is Wickedness!”…9there were two women…they had wings…they lifted up the basket…10So I said to the angel…,“Where are they carrying the basket?” 11And he said to me, “To build a house for it in the land of Shinar [Babylon], when it is ready, the basket will be set there on its base.” (Zech. 5:6-11)
+><sup>6</sup>I asked, “What is it?” And he [an angel] said, “It is a basket [ephah, NAS or a measuring basket] that is going forth.” He also said, “This is their resemblance throughout the earth: <sup>7</sup>Here…a woman sitting inside the basket…<sup>8</sup>[she] is Wickedness!”…<sup>9</sup>there were two women…they had wings…they lifted up the basket…<sup>10</sup>So I said to the angel…,“Where are they carrying the basket?” <sup>11</sup>And he said to me, “To build a house for it in the land of Shinar [Babylon], when it is ready, the basket will be set there on its base.” (Zech. 5:6-11)
 
 a. Vatican City is about 120 acres
 
@@ -67,4 +67,4 @@ b. The financial district in New York City is about 300 acres
 
 5. A regional political leader who establishes peace in the Middle East (Dan. 9:27). The Antichrist is described as a little horn because he initially comes on the world stage as a regional political leader (Dan. 7:8; 8:9)
 
->9And out of one of them came a little horn [the Antichrist] which grew exceedingly great toward the south, toward the east, and toward the Glorious Land. (Dan. 8:9)
+><sup>9</sup>And out of one of them came a little horn [the Antichrist] which grew exceedingly great toward the south, toward the east, and toward the Glorious Land. (Dan. 8:9)

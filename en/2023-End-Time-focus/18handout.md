@@ -17,21 +17,21 @@ D. Replacement theology views the Church as “spiritual Israel” and/or “spi
 
 A. Believers must not remain ignorant of the biblical narrative of Israel because it is the beginning of a 5-stage progression of darkness and can progressively lead believers into hardness of heart.
 
->25I do not desire…that you [Gentiles] should be ignorant of this mystery…that blindness in part has happened to Israel until the fullness of the Gentiles has come in. 26All Israel will be saved… (Rom. 11:25-26)
+><sup>25</sup>I do not desire…that you [Gentiles] should be ignorant of this mystery…that blindness in part has happened to Israel until the fullness of the Gentiles has come in. <sup>26</sup>All Israel will be saved… (Rom. 11:25-26)
 
 1. This mystery (11:25): Paul desired that Gentile believers not be ignorant of the mystery of “God’s grand family plan” that will result in Jews and Gentiles walking in deep love, humility, and gratitude toward one another (Jn 17:21-23; Eph. 3:3-10).
 
->3“...He made known to me the mystery… 6that the Gentiles should be fellow heirs, of the same body, and partakers of His promise in Christ…9[that] all see what is the fellowship of the mystery, which from the beginning of the ages has been hidden in God… (Eph. 3:3-9)
+><sup>3</sup>“...He made known to me the mystery… <sup>6</sup>that the Gentiles should be fellow heirs, of the same body, and partakers of His promise in Christ…<sup>9</sup>[that] all see what is the fellowship of the mystery, which from the beginning of the ages has been hidden in God… (Eph. 3:3-9)
 
->23“...they may be made perfect in one, and that the world may know that You have sent Me, and have loved them as You have loved Me.” (Jn. 17:23)
+><sup>23</sup>“...they may be made perfect in one, and that the world may know that You have sent Me, and have loved them as You have loved Me.” (Jn. 17:23)
 
 2. Fulness of the Gentiles: Israel’s blindness will be lifted and all Israel saved in context to the fullness of the Gentiles which includes the full number saved (“billion soul harvest”), and walking in fullness of love (fearless, obedient love even unto to death) and fullness of power (Jn. 14:12) with full understanding of “God’s grand family plan” (Dan. 11:33; Rev. 10:7). Gentiles have a significant role in God’s eternal plan—an “international family of affection.”
 
->7…in the days of the sounding of the seventh angel…the mystery of God would be finished, as He declared to His servants the prophets. (Rev. 10:7)
+><sup>7</sup>…in the days of the sounding of the seventh angel…the mystery of God would be finished, as He declared to His servants the prophets. (Rev. 10:7)
 
 B. A 5-stage progression: Ignorance (stage #1—v. 25) can lead to boasting (stage #2— v. 18 with its passive resistance that refuses to stand for Israel), which leads to arrogance (stage #3—v. 20) which can lead to active resistance (stage #4—persecuting Israel), which may lead to being cut off by God (stage #5—v. 22e). In the fear of God (v. 20), we deeply consider God’s goodness (v. 22a) which includes gratitude to God for allowing us to be grafted in to “the olive tree of Abraham” (v. 17).
 
->17[Gentiles] were grafted into...the olive tree [Israel], 18do not boast against the branches [Israel]... 20Do not be haughty, but fear. 21For if God did not spare the natural branches [Israel], He may not spare you either. 22Consider the goodness and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, if you continue in His goodness. Otherwise you will be cut off… 25I do not desire…that you [Gentiles] should be ignorant of this mystery… (Rom. 11:17-25)
+><sup>17</sup>[Gentiles] were grafted into...the olive tree [Israel], <sup>18</sup>do not boast against the branches [Israel]... <sup>20</sup>Do not be haughty, but fear. <sup>21</sup>For if God did not spare the natural branches [Israel], He may not spare you either. <sup>22</sup>Consider the goodness and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, if you continue in His goodness. Otherwise you will be cut off… <sup>25</sup>I do not desire…that you [Gentiles] should be ignorant of this mystery… (Rom. 11:17-25)
 
 C. I have wrestled for years to understand how godly Bible scholars have promoted such a serious error that deeply hinders the end-time Church from being equipped to stand as faithful witnesses and vessels of love to Israel in the most important hour of history.
 
@@ -43,19 +43,19 @@ D. I do not know which famous scholars in Church history who promoted replacemen
 
 1. Spiritual blindness (11:25): Some replacement theologians may have been genuinely ignorant of the biblical narrative of Israel, even as Paul described some Hebrew scholars (Rom. 10:2).
 
->2For I bear them witness that they have a zeal for God, but not according to knowledge. (Rom. 10:2)
+><sup>2</sup>For I bear them witness that they have a zeal for God, but not according to knowledge. (Rom. 10:2)
 
 2. Spiritual arrogance (11:20): Maybe some scholars just grew comfortable contradicting the straightforward way of interpreting Scripture in a literal way that they insisted was essential. Maybe some desired to appear scholarly by agreeing with other well-known scholars in history like Justin Martyr, Augustine, Calvin, Luther, etc. Maybe some were just unwilling to bear the stigma of standing with Israel—even though they knew Scripture requires this.
 
 3. Spiritual apostasy (11:22): Paul warned that some can “cross the line” and end up being cut off by the Lord. Paul warned believers of heeding doctrines of demons which I define as any doctrine that results in people resisting the main and plain truths of Scripture in such a persistent way that it constitutes denying or departing from the faith (1 Tim. 4:1).
 
->22Consider the goodness and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, if you continue in His goodness. Otherwise you will be cut off… (Rom. 11:22)
+><sup>22</sup>Consider the goodness and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, if you continue in His goodness. Otherwise you will be cut off… (Rom. 11:22)
 
->1The Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons… 2having their own conscience seared with a hot iron, 3forbidding to marry and commanding to abstain from foods… (1 Tim. 4:1-3)
+><sup>1</sup>The Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons… <sup>2</sup>having their own conscience seared with a hot iron, <sup>3</sup>forbidding to marry and commanding to abstain from foods… (1 Tim. 4:1-3)
 
 E. Even Peter was influenced by a demonic idea that he sincerely believed was a truth that honored God and supported His plan for Jesus (Mt. 16:16-23). What Peter believed was an offense to God.
 
->21Jesus began to show to His disciples that He must go to Jerusalem…and be killed…22Peter took Him aside… saying, “Far be it from You…” 23[Jesus] said to Peter, “Get behind Me, Satan! You are an offense to Me, for you are not mindful of the things of God…”(Mt. 16:21-23)
+><sup>21</sup>Jesus began to show to His disciples that He must go to Jerusalem…and be killed…<sup>22</sup>Peter took Him aside… saying, “Far be it from You…” <sup>23</sup>[Jesus] said to Peter, “Get behind Me, Satan! You are an offense to Me, for you are not mindful of the things of God…”(Mt. 16:21-23)
 
 F. The main theme of these chapters in this list are related to Israel (Deut. 28-33; Isa. 60-66; Jer. 30-33; Ezek. 34-48; Joel 2-3; Zech. 8-14; cf. Ps. 2; 44; 45; 65-68; 72; 79; 80; 83; 85-87; 94; 102; 118; 122; 132; 144-147).
 

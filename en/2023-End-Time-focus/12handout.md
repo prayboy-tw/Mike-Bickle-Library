@@ -7,7 +7,7 @@
 
 A. Jesus called His people “to see” the abomination of desolation and then pointed us to the book of Daniel to gain understanding of it (Mt. 24:15). Paul and John elaborated on it (2 Thes. 2; Rev. 13). The abomination of desolation is the first event in the Bible that signals the start of the tribulation.
 
->15“Therefore when you see the ‘abomination of desolation,’ spoken of by Daniel the prophet, standing in the holy place” (whoever reads, let him understand), 16“then let those who are in Judea flee to the mountains…21then there will be great tribulation, such as has not been…” (Mt. 24:15-16, 21)
+><sup>15</sup>“Therefore when you see the ‘abomination of desolation,’ spoken of by Daniel the prophet, standing in the holy place” (whoever reads, let him understand), <sup>16</sup>“then let those who are in Judea flee to the mountains…<sup>21</sup>then there will be great tribulation, such as has not been…” (Mt. 24:15-16, 21)
 
 B. Daniel’s “abomination of desolation” is the central event that helps us to understand Jesus’ view of the end times. This is the only specific political and religious event that Jesus identified which will let His people know that they are in the generation of His return and that the Great Tribulation has started. The fact of this event will help them understand other key events that are implied by it.
 
@@ -33,13 +33,13 @@ D. The desolation will occur in two ways—both are related to worshiping the An
 
 2. God will cause desolation: God will destroy any who agree to worship the Antichrist. He will bring judgment on the people, cities, and nations that worship the Antichrist.
 
->9If anyone worships the beast and his image, and receives his mark… 10he shall drink of the wine of the wrath of God, which is poured out full strength… (Rev. 14:9-10)
+><sup>9</sup>If anyone worships the beast and his image, and receives his mark… <sup>10</sup>he shall drink of the wine of the wrath of God, which is poured out full strength… (Rev. 14:9-10)
 
 ## III. THE ABOMINATION OF DESOLATION: A CLOSER LOOK
 
 A. John described the abomination of desolation in Revelation 13. Two main components of the abomination of desolation will be the image of the Beast and the mark of the Beast.
 
->15He [False Prophet] was granted power to give breath to the image of the beast that the image of the beast should both speak and cause as many as would not worship the image of the beast to be killed. 16He causes all…to receive a mark on their right hand or on their foreheads, 17and that no one may buy or sell except one who has the mark… (Rev. 13:15-18)
+><sup>15</sup>He [False Prophet] was granted power to give breath to the image of the beast that the image of the beast should both speak and cause as many as would not worship the image of the beast to be killed. <sup>16</sup>He causes all…to receive a mark on their right hand or on their foreheads, <sup>17</sup>and that no one may buy or sell except one who has the mark… (Rev. 13:15-18)
 
 1. Image of the Beast: An image of the Antichrist will be placed in the holy place of the rebuilt temple in Jerusalem. This image will be the greatest abomination in history deceiving many into worshiping the Antichrist. The image is one of the most emphasized end-time events. John emphasized it ten times (Rev. 13:14, 15 [3x]; 14:9, 11; 15:2; 16:2; 19:20; 20:4). The image may combine cutting-edge technology (holograms?) and supernatural demonic elements, causing this image to breathe and speak. There may be a global network of statues (holograms?) in local “worship sanctuaries” connected to the temple.
 
@@ -47,7 +47,7 @@ A. John described the abomination of desolation in Revelation 13. Two main compo
 
 B. Paul described the abomination of desolation in 2 Thessalonians 2.
 
->3Let no one deceive you by any means; for that Day [Jesus’ return] will not come unless the falling away comes first, and the man of sin [Antichrist] is revealed, the son of perdition, 4who opposes and exalts himself above all that is called God [associated with God] or that is worshiped, so that he sits as God in the temple of God, showing himself that he is God... 9The coming of the lawless one [Antichrist] is according to the working of Satan, with all power, signs, and lying wonders… (2 Thes. 2:3-9)
+><sup>3</sup>Let no one deceive you by any means; for that Day [Jesus’ return] will not come unless the falling away comes first, and the man of sin [Antichrist] is revealed, the son of perdition, <sup>4</sup>who opposes and exalts himself above all that is called God [associated with God] or that is worshiped, so that he sits as God in the temple of God, showing himself that he is God... <sup>9</sup>The coming of the lawless one [Antichrist] is according to the working of Satan, with all power, signs, and lying wonders… (2 Thes. 2:3-9)
 
 C. Neither Paul nor John use Daniel’s phrase the “abomination of desolation” but it is clear that they are referring to it since Paul prophesied that a man will sit in the temple declaring Himself to be God and confirming his claim with miracles (2 Thes. 2:4; Rev. 13:13-14). The implication is that he will seek to be worshiped as God since the purpose of the temple is to worship God. John described Antichrist being worship by people from all nations. He prophesied that an image of a man—the Antichrist—will be made and the nations will be forced by law to worship it (Rev. 13:4, 14-17).
 

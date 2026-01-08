@@ -28,17 +28,17 @@ G. Zechariah’s message has several paradoxes. Israel will see both revival and
 
 H. The Lord will use least severe means to reach the greatest number at the deepest level of love without violating free will. The Lord will overrule man’s evil for Israel’s good (Rom. 8:28), creating the context for Israel’s most glorious future in relating to and ruling with Jesus forever.
 
->20As for you [Joseph’s brothers], you meant evil against me [Joseph] but God meant it for good, in order to bring it about as it is this day, to save many people alive. (Gen. 50:20)
+><sup>20</sup>As for you [Joseph’s brothers], you meant evil against me [Joseph] but God meant it for good, in order to bring it about as it is this day, to save many people alive. (Gen. 50:20)
 
 ## II. ALL THE NATIONS WILL GATHER AGAINST ISRAEL (ZECH. 12:1-3)
 
 A. The Lord introduces this oracle by reminding us that He has the power to create the heavens, the earth, and all humanity (12:1). His plan, as set forth in this oracle, will require God’s creative power. No matter how impossible things appear to Israel, nothing is impossible for God. The fact that He formed the spirit of man assures Israel that He understands the human make-up and knows that His plan, as seen in this oracle, will work in leading Israel to salvation.
 
->1The burden of the word of the LORD against Israel. Thus says the LORD, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him. (Zech. 12:1)
+><sup>1</sup>The burden of the word of the LORD against Israel. Thus says the LORD, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him. (Zech. 12:1)
 
 B. The end-time siege around Jerusalem (12:2-3): This same siege is described again (14:2).
 
->2“Behold, I will make Jerusalem a cup of drunkenness to all the surrounding peoples [nations], when they lay siege against Judah and Jerusalem. 3And it shall happen in that day that I will make Jerusalem a very heavy stone for all peoples [nations]; all who would heave it away will surely be cut in pieces, though all nations of the earth are gathered against it.” (Zech. 12:2-3)
+><sup>2</sup>“Behold, I will make Jerusalem a cup of drunkenness to all the surrounding peoples [nations], when they lay siege against Judah and Jerusalem. <sup>3</sup>And it shall happen in that day that I will make Jerusalem a very heavy stone for all peoples [nations]; all who would heave it away will surely be cut in pieces, though all nations of the earth are gathered against it.” (Zech. 12:2-3)
 
 1. The battle for Jerusalem is a spiritual, political, financial, and military battle for the control of Jerusalem. It is one of the most significant battlefronts in the Spirit today.
 
@@ -48,7 +48,7 @@ B. The end-time siege around Jerusalem (12:2-3): This same siege is described ag
 
 4. The impact of many social, economic, religious, and political dynamics will create a scenario where everyone will be forced to make a decision to stand for or against Jesus and Jerusalem. There will be no neutral ground. All will be in the “valley of decision” related to Jerusalem.
 
->14Multitudes, multitudes in the valley of decision! The day of the LORD is near. (Joel 3:14)
+><sup>14</sup>Multitudes, multitudes in the valley of decision! The day of the LORD is near. (Joel 3:14)
 
 C. They lay siege: He saw an international coalition of nations and their armies attacking Jerusalem.
 The siege begins with the nations that surround Jerusalem (12:2), but it escalates to all nations
@@ -64,29 +64,28 @@ F. Heavy stone: God will make Jerusalem like a very heavy rock with sharp edges 
 
 A. Zechariah described aspects of the battle (12:4-9). The Lord will destroy the Antichrist’s armies surrounding Jerusalem by releasing confusion and a spirit of insanity on his armies (12:4).
 
->4In that day…I will strike every horse with confusion, and its rider with madness; I will open My eyes on the house of Judah, and will strike every horse…with blindness. (Zech. 12:4)
+><sup>4</sup>In that day…I will strike every horse with confusion, and its rider with madness; I will open My eyes on the house of Judah, and will strike every horse…with blindness. (Zech. 12:4)
 
 1. There will be horses in the battle of Jerusalem (Ezek. 38:15; 39:20; Hag. 2:22; Zech. 10:5; 12:4; 14:15; Rev. 19:18). Many in the Antichrist’s armies will come riding on horses, and the birds will devour the slain army (Ezek. 39:17-20; Rev. 19:17-18).
 
->17Then I saw an angel…saying to all the birds…“Come and gather together for the supper of the great God, 18that you may eat the flesh of kings, the flesh of captains, the flesh of mighty men, the flesh of horses and of those who sit on them…” (Rev. 19:17-18)
+><sup>17</sup>Then I saw an angel…saying to all the birds…“Come and gather together for the supper of the great God, <sup>18</sup>that you may eat the flesh of kings, the flesh of captains, the flesh of mighty men, the flesh of horses and of those who sit on them…” (Rev. 19:17-18)
 
->17…“Speak to every sort of bird… ‘Assemble yourselves and come…to My sacrificial meal…on the mountains of Israel, that you may eat flesh and drink blood.
-18You shall eat the flesh of the mighty, drink the blood of the princes of the earth, of rams…’” 20You shall be filled at My table with horses and riders…and with all the men of war”… (Ezek. 39:17-20)
+><sup>17</sup>…“Speak to every sort of bird… ‘Assemble yourselves and come…to My sacrificial meal…on the mountains of Israel, that you may eat flesh and drink blood. <sup>18</sup>You shall eat the flesh of the mighty, drink the blood of the princes of the earth, of rams…’” <sup>20</sup>You shall be filled at My table with horses and riders…and with all the men of war”… (Ezek. 39:17-20)
 
 2. Albert Einstein once said, “I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.”
 
 B. The Lord will supernaturally empower the small Israeli army as a weapon in His hand (12:6). This will be the greatest military reversal in history. The political leaders of Judah who live outside Jerusalem will see the events in 12:4 and will conclude that God is helping Jerusalem.
 
->5“The governors of Judah shall say in their heart, ‘The inhabitants of Jerusalem are my strength in the LORD…’ 6I will make the governors of Judah like a firepan in the woodpile, and like a fiery torch in the sheaves; they shall devour all the surrounding peoples…” (Zech. 12:5-6)
+><sup>5</sup>“The governors of Judah shall say in their heart, ‘The inhabitants of Jerusalem are my strength in the LORD…’ <sup>6</sup>I will make the governors of Judah like a firepan in the woodpile, and like a fiery torch in the sheaves; they shall devour all the surrounding peoples…” (Zech. 12:5-6)
 
 C. The Lord will empower the soldiers who live in Judah first, to create unity with Jerusalem (12:7). Those in Judah will be in a more defenseless condition, as suggested by dwelling in tents outside of the well-defended capital city. This will help end the long-standing division in Israel (11:6, 14).
 
->7The LORD will save the tents of Judah first, so that the glory of the house of David and the glory of the inhabitants of Jerusalem shall not become greater than that of Judah. (Zech. 12:7)
+><sup>7</sup>The LORD will save the tents of Judah first, so that the glory of the house of David and the glory of the inhabitants of Jerusalem shall not become greater than that of Judah. (Zech. 12:7)
 
 D. Zechariah prophesied that God will anoint Israeli soldiers as He did David (12:8). That is, the Lord will empower Israel’s army to resist the Antichrist even before Jesus returns (9:13; 10:3-7).
 
->8The LORD will defend the inhabitants of Jerusalem; the one who is feeble among them…shall be like David, and the house of David shall be like God, like the Angel of the LORD… (Zech. 12:8)
+><sup>8</sup>The LORD will defend the inhabitants of Jerusalem; the one who is feeble among them…shall be like David, and the house of David shall be like God, like the Angel of the LORD… (Zech. 12:8)
 
 E. The Lord speaks in the first person in 12:9-10, emphasizing that He is the One destroying the nations. Several times in this oracle the Lord promised to deliver Israel (12:9; 13:9; 14:3).
 
->9“…in that day that I will seek to destroy all the nations that come against Jerusalem.” (Zech. 12:9)
+><sup>9</sup>“…in that day that I will seek to destroy all the nations that come against Jerusalem.” (Zech. 12:9)

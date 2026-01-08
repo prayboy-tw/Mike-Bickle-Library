@@ -13,7 +13,7 @@ A. I believe history will change in context to the Isaiah 62 Fast—well over 5 
 
 B. May 2023 was a catalytic time in the escalation of the global conversation of the biblical narrative of Israel in the body of Christ. Replacement theology was given a “head wound” like the stone that knocked out Goliath so that David might cut off his head. In May 2023, God “guided a stone” to wound “the Goliath of replacement theology” (1 Sam. 17:49). I assure you, after 1700 years, the error of replacement theology will be cleansed from global end-time Church before Jesus returns.
 
->49…the stone sank into his [Goliath’s] forehead, and he fell…there was no sword in the hand of David…51he ran and stood over the Philistine, took his [Goliath’s] sword…and cut off his head. (1 Sam. 17:49-51)
+><sup>49</sup>…the stone sank into his [Goliath’s] forehead, and he fell…there was no sword in the hand of David…<sup>51</sup>he ran and stood over the Philistine, took his [Goliath’s] sword…and cut off his head. (1 Sam. 17:49-51)
 
 C. One emphasis in this message is that God’s servants should no longer be intimidated by this error that will lead some to deny their faith in the end times (Rom. 11:22). There is no sound biblical basis for this popular, false idea. God’s people are counting on their leaders to tell them the truth.
 
