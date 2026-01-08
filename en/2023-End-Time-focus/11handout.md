@@ -36,11 +36,12 @@ B. The 5 angelic explanations (parenthetical sections) tell us what happens to G
 
 C. Summary of the structure of the book of Revelation.
 
-Rev. 1 Pt. 1 John’s CALLING to prophesy about the End-Times  
-Rev. 2-3 Pt. 2 Jesus gave 7 LETTERS  
-Rev. 4-5 Pt. 3 Jesus takes the SCROLL  
+Rev. 1    Pt. 1 John’s CALLING to prophesy about the End-Times  
+Rev. 2-3  Pt. 2 Jesus gave 7 LETTERS  
+Rev. 4-5  Pt. 3 Jesus takes the SCROLL  
 Rev. 6-22 Pt. 4 Jesus’ BATTLE PLAN  
-	Rev. 6 Chronological section #1: SEAL JUDGMENTS
+
+	Rev. 6 Chronological section #1: SEAL JUDGMENTS  
 	Rev. 7 Angelic Explanation #1: PROTECTION from judgments and falling away
 
 	Rev. 8-9 Chronological section #2: TRUMPET JUDGMENTS against Antichrist  
