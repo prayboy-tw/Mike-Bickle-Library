@@ -40,7 +40,7 @@ D. ***Reason #4—the promise of increased understanding (Jer. 23:20; Dan. 11:33
 E. ***Reason #5—we are alerted by 4 pastoral challenges:*** People must understand the biblical narrative for what will happen and why it will happen, or they will by default embrace a secular narrative of the events, making them more vulnerable to being overcome by fear, offense, lust, and deception.
 
 F. Jesus highlighted ***4 responses*** that will greatly challenge many people’s faith in the end times:
-***F.O.L.D.***—***F***_ear_ (Lk. 21:26), ***O***_ffense_ (Mt. 24:10), ***L***_ust_ (Lk. 21:34), and ***D***_eception_ (Mt. 24:11)
+***F.O.L.D.***—_**F**ear_ (Lk. 21:26), _**O**ffense_ (Mt. 24:10), _**L**ust_ (Lk. 21:34), and _**D**eception_ (Mt. 24:11)
 
 > <sup>26</sup>“…men’s hearts failing them from <ins>fear</ins>… <sup>34</sup>“But take heed to yourselves, lest your hearts be weighed down with <ins>carousing</ins> [lust, immorality, etc.], <ins>drunkenness</ins>… and that Day [Jesus’ second coming] come on you unexpectedly.” (Lk. 21:26, 34)
 
