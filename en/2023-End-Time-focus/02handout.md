@@ -7,13 +7,13 @@
 
 A. Isaiah prophesied of end-time messengers who would prepare the way for Jesus’ return to Jerusalem (Isa. 40:3-5). At the time of Jesus’ return, “all flesh” or the whole earth will see God's glory together (40:5). John the Baptist was a forerunner messenger who prepared the way for Jesus’ first coming.
 
-> <sup>3</sup>The voice of one crying in the wilderness: "<ins>Prepare the way</ins> of the LORD; make straight in the desert a <ins>highway</ins> for our God… <sup>4</sup>the crooked places shall be made straight… <sup>5</sup>The glory of the LORD shall be revealed, and <ins>all flesh</ins> [all nations] shall see it <ins>together</ins> [at of Jesus’ coming]. (Isa. 40:3-5)
+><sup>3</sup>The voice of one crying in the wilderness: "<ins>Prepare the way</ins> of the LORD; make straight in the desert a <ins>highway</ins> for our God… <sup>4</sup>the crooked places shall be made straight… <sup>5</sup>The glory of the LORD shall be revealed, and <ins>all flesh</ins> [all nations] shall see it <ins>together</ins> [at of Jesus’ coming]. (Isa. 40:3-5)
 
 B. John the Baptist was a “down payment” of this prophecy. He was only a partial fulfillment of it. John’s ministry gives us insight into the forerunner ministry at the end of the age. He is the clearest model in Scripture of the end-time forerunner ministry as was prophesied in Isaiah 40:3-5. Undoubtedly, John knew from his youth he was a forerunner to be prepared in the wilderness as declared in the Scripture. He prepared for about 20 years for only 2 years of public ministry.
 
-> <sup>22</sup>Who are you…? What do you say about yourself? <sup>23</sup>He said: “<ins>I am the voice</ins> of one crying in the wilderness: make straight the way of the Lord, <ins>as the prophet Isaiah said</ins>.” (Jn. 1:22-23)
+><sup>22</sup>Who are you…? What do you say about yourself? <sup>23</sup>He said: “<ins>I am the voice</ins> of one crying in the wilderness: make straight the way of the Lord, <ins>as the prophet Isaiah said</ins>.” (Jn. 1:22-23)
 
-> <sup>23</sup>I am the voice of one crying in the wilderness…<ins>as the prophet Isaiah said</ins>. (Jn. 1:23)
+><sup>23</sup>I am the voice of one crying in the wilderness…<ins>as the prophet Isaiah said</ins>. (Jn. 1:23)
 
 C. ***Prepare the way:*** Bring people into agreement in understanding with what is coming. They must understand it, so that they have a chance to agree with it instead of turn it away. It is a great mercy that God raises up forerunner messengers that prepare the way. It takes time for people to digest truth that leads to embracing new paradigms and values. Most do not suddenly change.
 
@@ -21,7 +21,7 @@ C. ***Prepare the way:*** Bring people into agreement in understanding with what
 
 2. A end-time messenger with a forerunner spirit is someone who prepares people to respond in a right way to the events related to Jesus’ second coming.
 
-D. The reason the forerunner message is essential is because the Lord requires voluntary partnership. He will not force the body of Christ to intimate partnership with Him
+D. The reason the forerunner message is essential is because the Lord requires _voluntary partnership_. He will not force the body of Christ to intimate partnership with Him
 
 E. The Spirit will raise up forerunner ministries with grace to prepare people for Jesus’ return.
 
@@ -31,7 +31,7 @@ F. The Spirit will emphasize various aspects of God's end-time plan to His many 
 
 A. The forerunner message builds a spiritual highway for God.
 
-> <sup>3</sup>The voice of one crying in the wilderness: “<ins>Prepare the way</ins> of the LORD; make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain</ins> and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
+><sup>3</sup>The voice of one crying in the wilderness: “<ins>Prepare the way</ins> of the LORD; make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain</ins> and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
 
 B. ***Highway:*** Isaiah spoke of a spiritual highway. It is a “highway” that God can travel on or one in which He releases His glory (cargo). God determined to move on earth through His people who agree with Him. Thus. The highway God moves on is the voluntary agreement of His people with Him.
 
@@ -47,7 +47,7 @@ E. ***Make is straight:*** John was to make clear without any compromise about w
 
 F. The forerunner message addresses spiritual valleys, mountains and crooked and rough places.
 
-> <sup>3</sup>…“Prepare the way of the LORD; Make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain</ins> and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
+><sup>3</sup>…“Prepare the way of the LORD; Make straight in the desert a <ins>highway</ins> for our God. <sup>4</sup>Every <ins>valley</ins> shall be exalted and every <ins>mountain</ins> and hill brought low; the <ins>crooked places</ins> shall be made straight and the <ins>rough places</ins> smooth.” (Isa. 40:3-4)
 
 1. ***Valleys:*** The valleys are exalted. The valleys include the emotional low spots related to the spirit of rejection, accusation. Those low spots in our lives, the depressed areas. He wants the valleys to be brought up, or stabilized by the knowledge of God.
 
