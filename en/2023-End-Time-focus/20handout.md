@@ -5,59 +5,59 @@
 
 ## I. THE CHURCH DID NOT REPLACE ISRAEL IN THE NEW TESTAMENT
 
-A. Paul clarified that Israel’s sin did not result in God’s rejecting them and their national promises (Rom. 11:1-2). If replacement theology is right in saying that the Church replaced Israel, then when Paul wrote of the “failure of Israel” it would mean he was referring to the “failure of the Gentile Church”—how could the “failure of Gentiles” result in “riches for the Gentiles” (Rom 11:12)?
+A. Paul clarified that Israel’s sin did ***not*** result in God’s rejecting them and their national promises (Rom. 11:1-2). If replacement theology is right in saying that the Church replaced Israel, then when Paul wrote of the “failure of Israel” it would mean he was referring to the “failure of the Gentile Church” — how could the “failure of Gentiles” result in “riches for the Gentiles” (Rom 11:12)?
 
-><sup>1</sup>“…has God cast away His people [Israel]? Certainly not!…<sup>2</sup>God has not cast away His people whom He foreknew… <sup>12</sup>their [Israel’s] failure [results in] riches for the Gentiles… (Rom. 11:1-12)
+><sup>1</sup>“…has God cast away His people [Israel]? Certainly not!…<sup>2</sup><ins>God has not cast away His people whom He foreknew</ins>… <sup>12</sup><ins>their [Israel’s] failure [results in] riches for the Gentiles</ins>… (Rom. 11:1-12)
 
 B. Paul warned the Jews that their outward conformity to the law would not save them (Rom. 2:28-29). He was saying that Jews who say yes to their Messiah are the “true Jews.” He was not saying that Gentile Christians are “spiritual Jews” or “spiritual Israel” who replace the role of messianic Jews.
 
-><sup>28</sup>He is not a Jew who is one outwardly, nor is circumcision that which is outward in the flesh; <sup>29</sup>but he is a Jew who is one inwardly; and circumcision is that of the heart… (Rom. 2:28-29)
+><sup>28</sup><ins>He is not a Jew</ins> who is one outwardly, nor is circumcision that which is outward in the flesh; <sup>29</sup>but he is a <ins>Jew who is one inwardly</ins>; and circumcision is that of the heart… (Rom. 2:28-29)
 
-C. Paul used the term “Israel” in two ways: First, to refer to the whole nation of Israel. (9:4). Second, to refer to “true Israel,” which is saved Israel or messianic Jews (9:6). He is explaining what a true Israelite or Jew is before God. He is not saying the spiritual Israel consists of Gentile Christians. Paul never used “Jew” or “Israel” to refer to Gentile believers—as replacement theology claims.
+C. Paul used the term “Israel” in two ways: First, to refer to the whole nation of Israel. (9:4). Second, to refer to “true Israel,” which is saved Israel or messianic Jews (9:6). He is explaining what a true Israelite or Jew is before God. He is not saying the spiritual Israel consists of Gentile Christians. Paul never used “Jew” or “Israel” to refer to Gentile believers — as replacement theology claims.
 
-><sup>4</sup>who are Israelites, to whom pertain the adoption, the glory, the covenants...and the promises… <sup>6</sup>They are not all Israel who are of Israel, <sup>7</sup>nor are they all children [spiritually] because they are the seed of Abraham [physically one of Abraham’s descendants]… (Rom. 9:4-7)
+><sup>4</sup>who are <ins>Israelites</ins>, to whom pertain the adoption, the glory, the covenants...and the promises… <sup>6</sup>They are <ins>not all Israel who are of Israel</ins>, <sup>7</sup>nor are they <ins>all children</ins> [spiritually] because they are the seed of Abraham [physically one of Abraham’s descendants]… (Rom. 9:4-7)
 
-D. Paul confirmed that God did not transfer Israel’s national calling to Gentiles. God’s sovereign callings on peoples and nations are irrevocable (Webster: not capable of being changed or reversed).
+D. Paul confirmed that God did not transfer Israel’s national calling to Gentiles. God’s sovereign callings on peoples and nations are irrevocable (_Webster_: not capable of being changed or reversed).
 
-><sup>28</sup>concerning [God’s sovereign] election they [Jewish people] are beloved for the sake of the fathers. <sup>29</sup>For the gifts and the calling of God are irrevocable. (Rom. 11:28-29)
+><sup>28</sup>concerning [God’s sovereign] election they [Jewish people] <ins>are beloved</ins> for the sake of the fathers. <sup>29</sup>For <ins>the gifts and the calling of God are irrevocable</ins>. (Rom. 11:28-29)
 
 1. God looks at Israel in terms of His sovereign election related to their national destiny and calling that He declared to the Jewish fathers (Abraham, Isaac, Moses, David, Isaiah, etc.) Thus, the Lord has seen Israel throughout history and even in Paul’s days as “beloved.”
 
 2. God’s sovereign calling on Israel as a nation will never change because of the fact that their fathers said yes to His covenants, so God’s commitment to Israel’s national destiny will continue forever. God’s gifts (Rom. 9:4-5) and calling (purpose) are irrevocable (Deut. 7:6-9). He did not choose Israel because of her goodness, and does not forsake her in her failure.
 
-><sup>6</sup>“You are a holy people…God has chosen you to be a people for Himself, a special treasure above all [nations]… <sup>7</sup>The LORD did not set His love on you nor choose you because you were more in number…<sup>8</sup>but because the LORD loves you, and because He would keep the oath which He swore to your fathers…<sup>9</sup>Therefore know the LORD…is God, the faithful God who keeps covenant and mercy for a thousand generations with those who love Him…” (Deut. 7:6-9)
+><sup>6</sup>“You are a holy people…God has chosen you to be a people for Himself, a <ins>special treasure</ins> above all [nations]… <sup>7</sup>The LORD did not <ins>set His love on you</ins> nor choose you because you were more in number…<sup>8</sup>but <ins>because the LORD loves you</ins>, and <ins>because He would keep the oath</ins> which He swore to your fathers…<sup>9</sup>Therefore <ins>know</ins> the LORD…is God, <ins>the faithful God who keeps covenant</ins> and mercy for a <ins>thousand generations</ins> with those who love Him…” (Deut. 7:6-9)
 
 E. God is always watching Jerusalem day and night. He never stops speaking or watching (Isa. 62:1).
 
-><sup>16</sup>I have chosen…this house [the temple in Jerusalem], that My name may be there forever; and My eyes and My heart will be there perpetually. (2 Chr. 7:16) 
+><sup>16</sup>I have chosen…<ins>this house</ins> [the temple in Jerusalem], that <ins>My name</ins> may be there <ins>forever</ins>; and <ins>My eyes and My heart</ins> will be there <ins>perpetually</ins>. (2 Chr. 7:16) 
 
-><sup>5</sup>If I forget you, O Jerusalem, let my right hand forget its skill! <sup>6</sup>If I do not remember you, let my tongue cling to the roof of my mouth—if I do not exalt Jerusalem above my chief joy. (Ps. 137:5-6)
+><sup>5</sup>If I forget you, <ins>O Jerusalem</ins>, let my right hand forget its skill! <sup>6</sup>If I do not <ins>remember you</ins>, let my tongue cling to the roof of my mouth — if I do not <ins>exalt Jerusalem</ins> above <ins>my chief joy</ins>. (Ps. 137:5-6)
 
 ## II. COMMON PASSAGES USED TO SUPPORT REPLACEMENT THEOLOGY
 
 A. One reference often cited is Galatians 6:16, but Israel is never used in Scripture to refer Gentile believers. The “Israel of God” is a reference to Jewish believers in Jesus through church history. Paul made a clear distinction between Jews, Greeks (unbelievers), and the Church (1 Cor. 10:32)
 
-><sup>15</sup>In Christ Jesus neither circumcision nor uncircumcision avails anything, but a new creation. <sup>16</sup>As many as walk according to this rule, mercy be upon them, and upon the Israel of God. (Gal. 6:15-16)
+><sup>15</sup>In Christ Jesus neither circumcision nor uncircumcision avails anything, but a <ins>new creation</ins>. <sup>16</sup>As many as walk according to <ins>this rule</ins>, mercy be upon them, <ins>and</ins> upon <ins>the Israel of God</ins>. (Gal. 6:15-16)
 
-><sup>32</sup>Give no offense, either to the Jews or to the Greeks or to the church of God… (1 Cor. 10:32)
+><sup>32</sup>Give no offense, either to <ins>the Jews</ins> or to the Greeks or to the <ins>church of God</ins>… (1 Cor. 10:32)
 
 B. Many embracing replacement theology emphasize the false idea that the Abrahamic Covenant with its promises to Israel of eternal ownership of the promised land has been abolished (Gen 17:7-8)
 
 C. Scripture emphasizes that God’s covenant with Abraham concerning the Promise Land is eternal (Ps. 105:8-10). The Davidic Covenant did not replace the Abrahamic Covenant but added to it.
 
-><sup>7</sup>I will establish My covenant between Me and you…an everlasting covenant… <sup>8</sup>I give to you and your descendants…all the land of Canaan, as an everlasting possession…” (Gen. 17:7-8)
+><sup>7</sup>I will establish My covenant between Me and you…an <ins>everlasting covenant</ins>… <sup>8</sup>I give to you and your descendants…<ins>all the land</ins> of Canaan, as an <ins>everlasting possession</ins>…” (Gen. 17:7-8)
 
 D. Replacement theology has two positions in attempting to explain away the Abrahamic covenant:
 
-1. Abolitionists—they see God’s covenant with Abraham as abolished. Paul taught that Jesus died so that believers would receive the blessings of the Abrahamic covenant as Abraham’s children according to the promise (Gal. 3:18). Paul did not see the covenant as abolished.
+1. ***Abolitionists*** — they see God’s covenant with Abraham as ***abolished***. Paul taught that Jesus died so that believers would receive the blessings of the Abrahamic covenant as Abraham’s children according to the promise (Gal. 3:18). Paul did not see the covenant as abolished.
 
-2. Reconstructionist—they see God’s covenant with Abraham as reconstructed so that God’s promises to give the land to Israel are now spiritualized and not literal. This theory is based totally on human presuppositions that the Scriptures never affirm. They emphasize God’s promise to Abraham as being made not to his “seed” (the plural people of Israel), but to his “seed” (in the singular, meaning only Jesus (Gal. 3:16-18). Reconstructionist emphasize that since the singular “seed” (Jesus) has come, the promise to the plural “seed” (Jewish people) is no longer valid. However, Paul also used the “Abraham’s seed” in the plural (Rom. 9:6-7).
+2. ***Reconstructionist*** — they see God’s covenant with Abraham as ***reconstructed*** so that God’s promises to give the land to Israel are now spiritualized and not literal. This theory is based totally on human presuppositions that the Scriptures never affirm. They emphasize God’s promise to Abraham as being made not to his “seed” (the plural people of Israel), but to his “seed” (in the singular, meaning only Jesus (Gal. 3:16-18). Reconstructionist emphasize that since the singular “seed” (Jesus) has come, the promise to the plural “seed” (Jewish people) is no longer valid. However, Paul also used the “Abraham’s seed” in the plural (Rom. 9:6-7).
 
-><sup>16</sup>To Abraham and his Seed [Jesus] were the promises made. He does not say, “And to seeds,” as of many, but as of one, “And to your Seed,” who is Christ… (Gal. 3:16)
+><sup>16</sup>To Abraham <ins>and</ins> his Seed [Jesus] were <ins>the promises made</ins>. He does not say, “And to seeds,” as of many, but <ins>as of one</ins>, “And to your Seed,” who is Christ… (Gal. 3:16)
 
-3. Abraham’s seed is both singular and plural. God’s promised blessing to Abraham is only in Jesus, but the means by which the singular “seed” (Jesus) came into the world was through the plural “seed”– Israel. The one truth does not contradict the other but compliments it.
+3. ***Abraham’s seed is both singular and plural***. God’s promised blessing to Abraham is only in Jesus, but the means by which the singular “seed” (Jesus) came into the world was through the plural “seed” – Israel. The one truth does not contradict the other but compliments it.
 
-4. Abraham knew that his seed would become the channel of God’s blessing to the entire world (Gen. 12:3). The Hebrew and Greek words translated “seed” (Heb. zera, Gr. sperma) are collective singulars as in English. It is not clear from the word whether one or more seeds are in view. The Bible uses the phrase “seed of Abraham” to refer to 4 entities—Jesus (Gal. 3:16), Abraham’s spiritual children (believers, Gal. 4:6-9, 29), his physical descendants (the Jews, Gen. 12:1-3, 7), and his physical and spiritual posterity (saved Jews, Rom. 9:6, 8; Gal. 6:16).
+4. Abraham knew that his seed would become the channel of God’s blessing to the entire world (Gen. 12:3). The Hebrew and Greek words translated “seed” (Heb. _zera_, Gr. _sperma_) are collective singulars as in English. It is not clear from the word whether one or more seeds are in view. The Bible uses the phrase “seed of Abraham” to refer to 4 entities — Jesus (Gal. 3:16), Abraham’s spiritual children (believers, Gal. 4:6-9, 29), his physical descendants (the Jews, Gen. 12:1-3, 7), and his physical and spiritual posterity (saved Jews, Rom. 9:6, 8; Gal. 6:16).
 
 E. The main theme of these chapters in this list are related to Israel (Deut. 28-33; Isa. 60-66; Jer. 30-33; Ezek. 34-48; Joel 2-3; Zech. 8-14; cf. Ps. 2; 44; 45; 65-68; 72; 79; 80; 83; 85-87; 94; 102; 118; 122; 132; 144-147).
 
