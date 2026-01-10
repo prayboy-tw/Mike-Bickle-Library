@@ -5,7 +5,7 @@
 
 ## I. WE ARE ALERTED BY 4 PASTORAL CHALLENGES HIGHLIGHTED BY JESUS
 
-A. People must understand the ***biblical narrative*** for _what_ will happen and _why_ it will happen, or they will by default embrace a ***secular narrative*** of the events, making them more vulnerable to being overcome by fear, offense, lust, and deception.
+A. People must understand the ***biblical narrative*** for *what* will happen and *why* it will happen, or they will by default embrace a ***secular narrative*** of the events, making them more vulnerable to being overcome by fear, offense, lust, and deception.
 
 B. Jesus highlighted ***4 responses*** that will greatly challenge many people’s faith in the end times: ***F.O.L.D.***—_**F**ear_ (Lk. 21:26), _**O**ffense_ (Mt. 24:10), _**L**ust_ (Lk. 21:34), and _**D**eception_ (Mt. 24:11)
 

@@ -43,7 +43,7 @@ G. Paul wrote of his passion to obtain a heavenly crown around AD 54 (1 Cor. 9:2
 
 ><sup>11</sup>[Jesus said]…“Hold fast what you have, that <ins>no one may take your crown</ins>.” (Rev. 3:11)
 
-H. Near the end of Paul’s life, he _pressed_ for _the prize_ of the upward or heavenly call (Phil. 3:14). He wrote this around AD 62 or 8 years after he wrote of “running to win the prize” (1 Cor. 9:24).
+H. Near the end of Paul’s life, he *pressed* for *the prize* of the upward or heavenly call (Phil. 3:14). He wrote this around AD 62 or 8 years after he wrote of “running to win the prize” (1 Cor. 9:24).
 
 ><sup>12</sup>Not that I have already attained…<ins>I press on</ins>, that I may <ins>lay hold of</ins> that for which Christ Jesus has also <ins>laid hold of me</ins> [fullness of his calling]… <sup>14</sup><ins>I press toward</ins> the goal for <ins>the prize</ins> of the upward call [the fullness of his heavenly calling] of God in Christ Jesus. (Phil. 3:12-14)
 

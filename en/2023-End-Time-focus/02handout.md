@@ -21,7 +21,7 @@ C. ***Prepare the way:*** Bring people into agreement in understanding with what
 
 2. A end-time messenger with a forerunner spirit is someone who prepares people to respond in a right way to the events related to Jesus’ second coming.
 
-D. The reason the forerunner message is essential is because the Lord requires _voluntary partnership_. He will not force the body of Christ to intimate partnership with Him
+D. The reason the forerunner message is essential is because the Lord requires *voluntary partnership*. He will not force the body of Christ to intimate partnership with Him
 
 E. The Spirit will raise up forerunner ministries with grace to prepare people for Jesus’ return.
 

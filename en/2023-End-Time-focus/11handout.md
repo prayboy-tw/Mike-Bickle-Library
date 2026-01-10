@@ -11,7 +11,7 @@
 
 ***Part 3*** — Rev. 4-5 ***Jesus takes the SCROLL*** containing the earth’s title deed and Jesus’ plan to cleanse it. Jesus takes a 7-sealed scroll from the Father, representing His ***battle plan*** to judge, cleanse, and prepare the nations for Jesus’ rule over the earth, while bringing the Church to maturity.
 
-***Part 4*** — Rev. 6-22 ***Jesus’ BATTLE PLAN*** reveals His main story line of love in the book of Revelation. It includes the Great Tribulation judgments against the Antichrist who will be at “war” against Jesus (Rev. 11:7; 12:7, 17; 13:4, 7; 17:14; 19:11, 19). His battle plan is seen in ***5 chronological sections*** describing the 21 judgment events (7 seals, 7 trumpets, and 7 bowls) that are released on the Antichrist’s empire in sequential order. Each chronological section is followed by an ***angelic explanation*** functioning as a parenthesis, putting the storyline “on pause” to tell John why the judgment events are necessary. They answer “pastoral questions” arising from the chronological sections: Why is God’s wrath so severe? (How can a God of love be so violent?) _“What will happen to the Church?”_ How Jesus will help the saints to stand in the face of great deception and persecution and/or how the Antichrist will attack them.
+***Part 4*** — Rev. 6-22 ***Jesus’ BATTLE PLAN*** reveals His main story line of love in the book of Revelation. It includes the Great Tribulation judgments against the Antichrist who will be at “war” against Jesus (Rev. 11:7; 12:7, 17; 13:4, 7; 17:14; 19:11, 19). His battle plan is seen in ***5 chronological sections*** describing the 21 judgment events (7 seals, 7 trumpets, and 7 bowls) that are released on the Antichrist’s empire in sequential order. Each chronological section is followed by an ***angelic explanation*** functioning as a parenthesis, putting the storyline “on pause” to tell John why the judgment events are necessary. They answer “pastoral questions” arising from the chronological sections: Why is God’s wrath so severe? (How can a God of love be so violent?) *“What will happen to the Church?”* How Jesus will help the saints to stand in the face of great deception and persecution and/or how the Antichrist will attack them.
 
 Rev. 6 ***Chronological Section #1:*** The ***seal judgments*** against the kingdom of darkness  
 	Rev. 7 ***Angelic Explanation #1:*** We receive PROTECTION from judgments and falling away.
@@ -27,14 +27,14 @@ Rev. 15-16 ***Chronological Section #4:*** The ***bowl judgments*** destroy evil
 	Rev. 17-18 ***Angelic Explanation #4:*** The SEDUCTION by Babylon’s evil religion will permeate and infiltrate all the structures of society, requiring that Babylon be totally destroyed. (Ps. 2:8-9).
 
 Rev. 19-20 ***Chronological Section #5:*** Jesus’ ***triumphal entry*** to Jerusalem (Rev. 19:11-21:8)  
-	Rev. 21-22 ***Angelic Explanation #5:*** The _RESTORATION_ of all things (Acts 3:21; Rev. 21:9-22:5).  
+	Rev. 21-22 ***Angelic Explanation #5:*** The *RESTORATION* of all things (Acts 3:21; Rev. 21:9-22:5).  
    After Jesus returns, He will restore all that God originally intended in the Garden of Eden.
 
 ## II. SUMMARY
 
-A. The 5 chronological sections (seals, trumpets, bowls) tell us what happens to the _Antichrist empire_.
+A. The 5 chronological sections (seals, trumpets, bowls) tell us what happens to the *Antichrist empire*.
 
-B. The 5 angelic explanations (parenthetical sections) tell us what happens to _God’s people_.
+B. The 5 angelic explanations (parenthetical sections) tell us what happens to *God’s people*.
 
 C. Summary of the structure of the book of Revelation.
 

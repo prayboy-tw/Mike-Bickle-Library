@@ -5,7 +5,7 @@
 
 ## I. THREE PROPHETIC TIME FRAMES
 
-A. ***Review:*** There are 3 prophetic time frames related to the final 7 years of this age (Dan. 9:27; Mt. 24:8; 1 Thes. 5:2-3) are the _beginning of birth pains_ (possibly starting in 1948 or 1967), _worldwide counterfeit peace and safety_ (3½ years), and the _Great Tribulation_.
+A. ***Review:*** There are 3 prophetic time frames related to the final 7 years of this age (Dan. 9:27; Mt. 24:8; 1 Thes. 5:2-3) are the *beginning of birth pains* (possibly starting in 1948 or 1967), *worldwide counterfeit peace and safety* (3½ years), and the *Great Tribulation*.
 
 B. Jesus identified ***25 signs of the times*** — 23 are negative (Mt. 24; Mk. 13; Lk. 21). He highlighted ***12 negative trends*** as the “beginning of birth pains” that will increase throughout the generation that He returns (Mt. 24:4-8; Lk. 21:8-11). He identified ***5 negative trends*** that will increase “after” the beginning of birth pains and escalate during the final 7 years of this age (Mt. 24:9-12). Then He identified ***8 signs*** that will occur in the 3½ years of the Tribulation (Mt. 24:14-28; Lk. 21:20, 24).
 
@@ -15,11 +15,11 @@ A. Paul prophesied a “counterfeit peace and safety” that will end suddenly w
 
 ><sup>2</sup>For you yourselves know perfectly that the Day of the Lord so comes as a thief in the night. <sup>3</sup>For when they say, “<ins>Peace and safety</ins>!” then <ins>sudden destruction</ins> [Great Tribulation] comes upon them, <ins>as labor pains</ins> upon a pregnant woman. And <ins>they shall not escape</ins>. (1 Thes. 5:2-3)
 
-B. The counterfeit peace will be the result of the Antichrist negotiating a _peace treaty_ between Israel and the Islamic nations (Dan. 9:27). Initially, the Antichrist will be seen as a man of peace. He will initially be a regional ***political leader*** referred to as the “little horn” (Dan. 7:8; 8:9)
+B. The counterfeit peace will be the result of the Antichrist negotiating a *peace treaty* between Israel and the Islamic nations (Dan. 9:27). Initially, the Antichrist will be seen as a man of peace. He will initially be a regional ***political leader*** referred to as the “little horn” (Dan. 7:8; 8:9)
 
 ><sup>27</sup>Then he [Antichrist] shall <ins>confirm a covenant</ins> [peace treaty] with many [Israel and Islamic nations] for one week [7-year period]; but in the middle of the week [after 3½ years] he shall <ins>bring an end</ins> to sacrifice and offering [breaking his covenant with Israel]. (Dan. 9:27)
 
-C. Jesus identified ***5 negative trends*** that will increase “after” the beginning of birth pains and continue to escalate during the final 7 years of this age (Mt. 24:9-12). They include the _martyrdom of believers_ (Mt. 24:9), _social anarchy_ as hatred, betrayal, and offense dominate society (Mt. 24:10), _false prophets_ (some will be popular social commentators (Mt. 24:11), _abounding lawlessness_ (Mt. 24:12) and _love growing cold_ due to many having a seared conscience (1 Tim. 4:2).
+C. Jesus identified ***5 negative trends*** that will increase “after” the beginning of birth pains and continue to escalate during the final 7 years of this age (Mt. 24:9-12). They include the *martyrdom of believers* (Mt. 24:9), *social anarchy* as hatred, betrayal, and offense dominate society (Mt. 24:10), *false prophets* (some will be popular social commentators (Mt. 24:11), *abounding lawlessness* (Mt. 24:12) and *love growing cold* due to many having a seared conscience (1 Tim. 4:2).
 
 ><sup>8</sup>All these are the <ins>beginning of sorrows</ins> [birth pains, ESV, NIV]. <sup>9</sup>“<ins>Then</ins> they will deliver you up to tribulation and <ins>kill you</ins>, and you will be <ins>hated by all nations</ins> for My name’s sake. <sup>10</sup>And <ins>then</ins> many will be <ins>offended</ins>, will <ins>betray one another</ins>, and will hate one another. <sup>11</sup>Then <ins>many false prophets</ins> will rise up and deceive many. <sup>12</sup>And because <ins>lawlessness will abound</ins>, the love of many will grow cold. <sup>13</sup>But he who <ins>endures</ins> to the end shall be saved.” (Mt. 24:9-13)
 
@@ -53,6 +53,6 @@ E. After the beginning of birth pains, during the first half of the final 7 year
 
 ><sup>6</sup>I saw the woman [Harlot Babylon], <ins>drunk with the blood of the saints</ins>… (Rev. 17:6)
 
-F. God will establish the optimum environment for His people to walk in love and purity (Rom. 8:28). _God uses the least severe means to bring the greatest number of people to the deepest level of love_.
+F. God will establish the optimum environment for His people to walk in love and purity (Rom. 8:28). *God uses the least severe means to bring the greatest number of people to the deepest level of love*.
 
 ><sup>28</sup>And we <ins>know</ins> that <ins>all things</ins> work together <ins>for good</ins> to those who love God… (Rom. 8:28)

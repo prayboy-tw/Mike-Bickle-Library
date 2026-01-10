@@ -11,7 +11,7 @@ B. As we are aware that something historic is unfolding we become more urgent to
 
 C. Replacement theology spiritualized rather than interpreted the prophetic promises given to Israel in a literal, plain sense way. It embraces a non-literal, allegorical interpretation of these promises and/or insists that most of the end-time prophecies about Israel have been fulfilled in history.
 
-D. Replacement theology views the Church as “spiritual Israel” and/or “spiritual Jerusalem.” In the NT, the term, _Israel_, is used nearly 70 times, always referring to the physical people of Israel, never as a substitute term for the Church. The phrases, _New Israel_ and _Spiritual Israel_, are not in the Bible.
+D. Replacement theology views the Church as “spiritual Israel” and/or “spiritual Jerusalem.” In the NT, the term, *Israel*, is used nearly 70 times, always referring to the physical people of Israel, never as a substitute term for the Church. The phrases, *New Israel* and *Spiritual Israel*, are not in the Bible.
 
 ## II. GENTILE BELIEVERS MUST AVOID THIS 5-STAGE SPIRITUAL PROGRESSION (ROM. 11)
 
@@ -25,11 +25,11 @@ A. Believers must not remain ignorant of the biblical narrative of Israel becaus
 
 ><sup>23</sup>“...they may be made <ins>perfect in one</ins>, and that the world may <ins>know</ins> that You have <ins>sent Me</ins>, and <ins>have loved them</ins> as You have loved Me.” (Jn. 17:23)
 
-2. ***Fulness of the Gentiles***: Israel’s blindness will be lifted and all Israel saved in context to the _fullness of the Gentiles_ which includes the _full number saved_ (“billion soul harvest”), and walking in _fullness of love_ (fearless, obedient love even unto to death) and _fullness of power_ (Jn. 14:12) with _full understanding_ of “God’s grand family plan” (Dan. 11:33; Rev. 10:7). Gentiles have a significant role in God’s eternal plan—an “international family of affection.”
+2. ***Fulness of the Gentiles***: Israel’s blindness will be lifted and all Israel saved in context to the *fullness of the Gentiles* which includes the *full number saved* (“billion soul harvest”), and walking in *fullness of love* (fearless, obedient love even unto to death) and *fullness of power* (Jn. 14:12) with *full understanding* of “God’s grand family plan” (Dan. 11:33; Rev. 10:7). Gentiles have a significant role in God’s eternal plan—an “international family of affection.”
 
 ><sup>7</sup>…in the days of the sounding of the seventh angel…<ins>the mystery of God would be finished</ins>, as He declared to His servants the prophets. (Rev. 10:7)
 
-B. ***A 5-stage progression***: ***Ignorance*** _(stage #1—v. 25)_ can lead to ***boasting*** _(stage #2— v. 18_ with its passive resistance that refuses to stand for Israel), which leads to ***arrogance*** _(stage #3—v. 20)_ which can lead to ***active resistance*** _(stage #4_ — persecuting Israel), which may lead to being ***cut off by God*** _(stage #5_ — v. 22e). In the fear of God (v. 20), we deeply consider God’s goodness (v. 22a) which includes gratitude to God for allowing us to be grafted in to “the olive tree of Abraham” (v. 17).
+B. ***A 5-stage progression***: ***Ignorance*** *(stage #1—v. 25)* can lead to ***boasting*** *(stage #2— v. 18* with its passive resistance that refuses to stand for Israel), which leads to ***arrogance*** *(stage #3—v. 20)* which can lead to ***active resistance*** *(stage #4* — persecuting Israel), which may lead to being ***cut off by God*** *(stage #5* — v. 22e). In the fear of God (v. 20), we deeply consider God’s goodness (v. 22a) which includes gratitude to God for allowing us to be grafted in to “the olive tree of Abraham” (v. 17).
 
 ><sup>17</sup>[Gentiles] were grafted into...the <ins>olive tree</ins> [Israel], <sup>18</sup>do not boast against the branches [Israel]... <sup>20</sup><ins>Do not be haughty, but fear</ins>. <sup>21</sup>For if God did not spare the natural branches [Israel], <ins>He may not spare you either</ins>. <sup>22</sup><ins>Consider the goodness</ins> and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, <ins>if you continue</ins> in His goodness. Otherwise <ins>you will be cut off</ins>… <sup>25</sup>I do not desire…that you [Gentiles] should be <ins>ignorant of this mystery</ins>… (Rom. 11:17-25)
 

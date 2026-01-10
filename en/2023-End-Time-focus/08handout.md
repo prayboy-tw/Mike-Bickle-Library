@@ -7,7 +7,7 @@
 
 A. The Great Tribulation begins in the middle of the final 7 years of this age and will last for 3½ years.
 
-B. Jesus identified ***8 signs*** that occur in the 3½ years of the Tribulation (Mt. 24:14-28; Lk. 21:20, 24). In Matthew 24, He highlighted ***5 signs*** (24:14-24) — ***2 are positive trends*** in _the gospel being preached in all nations_ (24:14) and the _Sabbath restored_ in Israel (24:20) and ***one terrible event*** — the _abomination of desolation_, (24:15) with ***2 negative trends*** — _unprecedented deaths_ (24:22) and false prophets doing _miracles_ (24:24). ***Luke identified an additional 3 negative events*** (21:20) — _Jerusalem being surrounded by armies_ (21:20), their people _being killed and/or led away captive_ into all nations (21:24) and Jerusalem _being trampled by Gentiles_ (Lk. 21:24).
+B. Jesus identified ***8 signs*** that occur in the 3½ years of the Tribulation (Mt. 24:14-28; Lk. 21:20, 24). In Matthew 24, He highlighted ***5 signs*** (24:14-24) — ***2 are positive trends*** in *the gospel being preached in all nations* (24:14) and the *Sabbath restored* in Israel (24:20) and ***one terrible event*** — the *abomination of desolation*, (24:15) with ***2 negative trends*** — *unprecedented deaths* (24:22) and false prophets doing *miracles* (24:24). ***Luke identified an additional 3 negative events*** (21:20) — *Jerusalem being surrounded by armies* (21:20), their people *being killed and/or led away captive* into all nations (21:24) and Jerusalem *being trampled by Gentiles* (Lk. 21:24).
 
 ><sup>14</sup>“And this <ins>gospel of the kingdom will be preached</ins>…to all the nations…<sup>15</sup>When you see the ‘<ins>abomination of desolation</ins>’…<sup>21</sup>Then there will be great tribulation… (Mt. 24:14-21)
 
@@ -15,7 +15,7 @@ B. Jesus identified ***8 signs*** that occur in the 3½ years of the Tribulation
 
 C. The Great Tribulation will be the most difficult yet the most important 3½ years in history. There will be two severe waves of death—the first will claim one-fourth of earth’s population (Rev. 6:8), the second an additional one-third (Rev. 9:15)—totaling 50% of the earth’s population.
 
-D. _God uses the least severe means to bring the greatest number of people to the deepest level of love_ (Rom. 8:28).
+D. *God uses the least severe means to bring the greatest number of people to the deepest level of love* (Rom. 8:28).
 
 ## II. THE ANTICHRIST’S POWER, DECEPTION AND DESTRUCTION
 
@@ -23,7 +23,7 @@ A. ***The Antichrist*** (Rev. 13:1-10) will wage war against Jesus and His peopl
 
 ><sup>3</sup>…<ins>his deadly wound was healed</ins>. And all the <ins>world marveled</ins> and followed the beast... (Rev. 13:3)
 
-B. The abomination of desolation is the primary sign that the Great Tribulation has begun. The saints will see it (Mt. 24:15). Two components of the abomination are the _image_ and the _mark_ of the Beast (Rev. 13:15-18). The Antichrist will declare himself to be God (2 Thes. 2:4), and the False Prophet will set an image of the Antichrist in the temple and demand all to worship him (Rev. 13:15).
+B. The abomination of desolation is the primary sign that the Great Tribulation has begun. The saints will see it (Mt. 24:15). Two components of the abomination are the *image* and the *mark* of the Beast (Rev. 13:15-18). The Antichrist will declare himself to be God (2 Thes. 2:4), and the False Prophet will set an image of the Antichrist in the temple and demand all to worship him (Rev. 13:15).
 
 ><sup>15</sup>“Therefore when you see the ‘<ins>abomination of desolation</ins>’…standing in the holy place”… <sup>21</sup>Then there will be <ins>great tribulation</ins>, such as has not been since the beginning of the world… <sup>29</sup><ins>Immediately after the tribulation</ins> of those days the sun will be darkened…<sup>30</sup><ins>all the tribes of the earth</ins>…<ins>will see the Son of Man</ins> coming on the clouds…<sup>31</sup>He will send His angels…and <ins>they will gather [the rapture] together His elect</ins> from…one end of heaven to the other.” (Mt. 24:15-31)
 

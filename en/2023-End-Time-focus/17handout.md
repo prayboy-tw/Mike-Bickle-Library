@@ -25,11 +25,11 @@ C. One emphasis in this message is that God’s servants should ***no longer be 
 
 ## II. REPLACEMENT THEOLOGY: A SIMPLE OVERVIEW
 
-A. Replacement theology promotes the error that God is finished with Israel as a nation and the promises He made to ancient Israel in the Old Testament have been given to the Church. Thus, the Church is God’s ***“new true Israel”*** who inherits all the national promises He initially gave to Israel. Replacement theology historically has also been called _supersessionism_ or _fulfillment theology_.
+A. Replacement theology promotes the error that God is finished with Israel as a nation and the promises He made to ancient Israel in the Old Testament have been given to the Church. Thus, the Church is God’s ***“new true Israel”*** who inherits all the national promises He initially gave to Israel. Replacement theology historically has also been called *supersessionism* or *fulfillment theology*.
 
 B. Replacement theology spiritualized rather than interpreted the prophetic promises given to Israel in a literal, plain sense way. It embraces a non-literal, allegorical interpretation of these promises and/or insists that most of the end-time prophecies about Israel have been fulfilled in history.
 
-C. Replacement theology views the Church as “spiritual Israel” and/or “spiritual Jerusalem.” In the NT, the term, _Israel_, is used nearly 70 times, always referring to the physical people of Israel, never as a substitute term for the Church. The phrases, _New Israel_ and _Spiritual Israel_, are not in the Bible.
+C. Replacement theology views the Church as “spiritual Israel” and/or “spiritual Jerusalem.” In the NT, the term, *Israel*, is used nearly 70 times, always referring to the physical people of Israel, never as a substitute term for the Church. The phrases, *New Israel* and *Spiritual Israel*, are not in the Bible.
 
 1. Not even one Bible verse clearly declares that the Church is now spiritual Israel.
 
@@ -43,7 +43,7 @@ E. There are 2 main approaches to replacement theology.
 
 2. Israel’s role as God’s people was ***completed***. This view says that after Jesus came, Israel’s mission was completed. The Church replaced Israel. God is no longer working through Israel. This is an expression of the ***reconstructionist view*** of the Abrahamic Covenant.
 
-F. ***Literal interpretation***: The best Bible teachers in history embrace the ***historical-grammatical*** method of interpretation. This interpretative gird seeks to understand each passage according to the original meaning that was intended by the one who wrote it. Literal interpretation seeks to understand the “plain meaning” — what the author intended as conveyed by its _grammatical construction_ and _historical context_, including the cultural background of the author and its readers.
+F. ***Literal interpretation***: The best Bible teachers in history embrace the ***historical-grammatical*** method of interpretation. This interpretative gird seeks to understand each passage according to the original meaning that was intended by the one who wrote it. Literal interpretation seeks to understand the “plain meaning” — what the author intended as conveyed by its *grammatical construction* and *historical context*, including the cultural background of the author and its readers.
 
 G. Replacement theology is one of the most dangerous errors promoted throughout history by many who are reputed to be trustworthy Bible scholars for many centuries. There is serious contradiction in their teaching — in that they consistently insist on the literal interpretation of Scripture ***except when it relates to Israel***. In my opinion, it seems to be an blatant contradiction that is a serious blemish on their legacy of being honest scholars who are faithful witnesses of the truth.
 

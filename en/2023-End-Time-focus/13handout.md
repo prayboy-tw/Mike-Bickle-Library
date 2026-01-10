@@ -17,7 +17,7 @@ B. The apostles rejoiced in being “counted worthy” to suffer knowing it tran
 
 ><sup>14</sup>If you are reproached for the name of Christ…<ins>the Spirit of glory</ins>…rests upon you. (1 Pet. 4:14)
 
-C. On Tuesday (Mt. 24-25) and Thursday (Jn. 13-17) of Jesus’ final week of ministry, He elaborated on what discipleship includes — highlighting _the joyful and painful aspects_. On Tuesday, Jesus prophesied that, in the end times before He returns, “all nations” will hate His disciples (Mt. 24:9).
+C. On Tuesday (Mt. 24-25) and Thursday (Jn. 13-17) of Jesus’ final week of ministry, He elaborated on what discipleship includes — highlighting *the joyful and painful aspects*. On Tuesday, Jesus prophesied that, in the end times before He returns, “all nations” will hate His disciples (Mt. 24:9).
 
 ><sup>8</sup>All these are the beginning of sorrows [birth pains]. <sup>9</sup><ins>Then</ins>…you will be <ins>hated by all nations</ins>… <sup>12</sup>lawlessness will abound…<sup>14</sup><ins>the gospel</ins>…will be preached…to <ins>all the nations</ins>…” (Mt. 24:8-14)
 
@@ -37,9 +37,9 @@ F. The promise of the seal of divine love in Song 8:6 includes the Lord giving t
 
 A. Several “persecution watch lists” identify 60+ nations that have a high level of persecution against believers. Thus, about 300 million believers regularly face “the possibility” of persecution.
 
-B. Common elements of the persecutions seen in these 60+ nations include people being thrown in jail without a trial or being given a long sentence in a reeducation camp. Many are raped, beaten, or killed. Christian villages, churches, homes, and crops are burned, leaving families to starve. Many nations have “anti-conversion laws” that are enforced by the death penalty—when Muslims turn to Jesus, it is considered blasphemy against Allah. China is a surveillance state that has 500+ million cameras using A.I. with facial recognition to create _social credit scores_ that penalize believers.
+B. Common elements of the persecutions seen in these 60+ nations include people being thrown in jail without a trial or being given a long sentence in a reeducation camp. Many are raped, beaten, or killed. Christian villages, churches, homes, and crops are burned, leaving families to starve. Many nations have “anti-conversion laws” that are enforced by the death penalty—when Muslims turn to Jesus, it is considered blasphemy against Allah. China is a surveillance state that has 500+ million cameras using A.I. with facial recognition to create *social credit scores* that penalize believers.
 
-C. Pope John Paul II established the _Commission for Martyrs_ which researched and cataloged all those who were killed for their faith in Jesus in the 20th century. They claim that the _“20th century has produced double the number of Christian martyrs than all the previous 19 centuries put together.”_ “The Esther Project” reports that about ***1,000,000 Christians were martyred between 2000-2010***.
+C. Pope John Paul II established the *Commission for Martyrs* which researched and cataloged all those who were killed for their faith in Jesus in the 20th century. They claim that the *“20th century has produced double the number of Christian martyrs than all the previous 19 centuries put together.”* “The Esther Project” reports that about ***1,000,000 Christians were martyred between 2000-2010***.
 
 D. Christians enduring persecution in end-time prophecy is a sober reality (Mt. 10:21-22, 28; 24:9; Lk. 21:16-19; Jn. 15:18-25; Rev. 6:9-11; 11:7; 12:11, 17; 13:7, 10;16:5-7; 17:6; 18:24; 19:2; 20:4).
 

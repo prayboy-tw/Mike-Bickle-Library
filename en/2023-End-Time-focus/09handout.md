@@ -45,7 +45,7 @@ I. The prayers of all the saints during the Tribulation will release the trumpet
 
 ><sup>3</sup>And I will give power to my two witnesses…<sup>5</sup>fire proceeds from their mouth and devours their enemies…<sup>6</sup>These have <ins>power to shut heaven</ins>…and they have <ins>power over waters to turn them to blood</ins>, and to strike the earth with all plagues, as often as they desire. (Rev. 11:3-6)
 
-J. David prophesied about one generation that will release the judgments written in the Scripture on the nations through worship and prayer. Releasing judgment by prayer is _the honor of all saints_.
+J. David prophesied about one generation that will release the judgments written in the Scripture on the nations through worship and prayer. Releasing judgment by prayer is *the honor of all saints*.
 
 >Let the <ins>high praises</ins> of God be in their mouth…<sup>7</sup>to execute <ins>vengeance</ins> on the nations… <sup>9</sup>to execute on them the <ins>written judgment</ins> -- this honor have all His saints. (Ps. 149:6-9)
 

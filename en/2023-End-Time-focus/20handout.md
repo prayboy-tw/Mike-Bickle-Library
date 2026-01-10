@@ -17,7 +17,7 @@ C. Paul used the term “Israel” in two ways: First, to refer to the whole nat
 
 ><sup>4</sup>who are <ins>Israelites</ins>, to whom pertain the adoption, the glory, the covenants...and the promises… <sup>6</sup>They are <ins>not all Israel who are of Israel</ins>, <sup>7</sup>nor are they <ins>all children</ins> [spiritually] because they are the seed of Abraham [physically one of Abraham’s descendants]… (Rom. 9:4-7)
 
-D. Paul confirmed that God did not transfer Israel’s national calling to Gentiles. God’s sovereign callings on peoples and nations are irrevocable (_Webster_: not capable of being changed or reversed).
+D. Paul confirmed that God did not transfer Israel’s national calling to Gentiles. God’s sovereign callings on peoples and nations are irrevocable (*Webster*: not capable of being changed or reversed).
 
 ><sup>28</sup>concerning [God’s sovereign] election they [Jewish people] <ins>are beloved</ins> for the sake of the fathers. <sup>29</sup>For <ins>the gifts and the calling of God are irrevocable</ins>. (Rom. 11:28-29)
 
@@ -57,7 +57,7 @@ D. Replacement theology has two positions in attempting to explain away the Abra
 
 3. ***Abraham’s seed is both singular and plural***. God’s promised blessing to Abraham is only in Jesus, but the means by which the singular “seed” (Jesus) came into the world was through the plural “seed” – Israel. The one truth does not contradict the other but compliments it.
 
-4. Abraham knew that his seed would become the channel of God’s blessing to the entire world (Gen. 12:3). The Hebrew and Greek words translated “seed” (Heb. _zera_, Gr. _sperma_) are collective singulars as in English. It is not clear from the word whether one or more seeds are in view. The Bible uses the phrase “seed of Abraham” to refer to 4 entities — Jesus (Gal. 3:16), Abraham’s spiritual children (believers, Gal. 4:6-9, 29), his physical descendants (the Jews, Gen. 12:1-3, 7), and his physical and spiritual posterity (saved Jews, Rom. 9:6, 8; Gal. 6:16).
+4. Abraham knew that his seed would become the channel of God’s blessing to the entire world (Gen. 12:3). The Hebrew and Greek words translated “seed” (Heb. *zera*, Gr. *sperma*) are collective singulars as in English. It is not clear from the word whether one or more seeds are in view. The Bible uses the phrase “seed of Abraham” to refer to 4 entities — Jesus (Gal. 3:16), Abraham’s spiritual children (believers, Gal. 4:6-9, 29), his physical descendants (the Jews, Gen. 12:1-3, 7), and his physical and spiritual posterity (saved Jews, Rom. 9:6, 8; Gal. 6:16).
 
 E. The main theme of these chapters in this list are related to Israel (Deut. 28-33; Isa. 60-66; Jer. 30-33; Ezek. 34-48; Joel 2-3; Zech. 8-14; cf. Ps. 2; 44; 45; 65-68; 72; 79; 80; 83; 85-87; 94; 102; 118; 122; 132; 144-147).
 

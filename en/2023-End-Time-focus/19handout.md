@@ -7,7 +7,7 @@
 
 A. Believers must not remain ignorant of the biblical narrative of Israel because it is the beginning of a 5-stage progression of darkness and can progressively lead believers into hardness of heart.
 
-B. ***A 5-stage progression***: ***Ignorance*** _(stage #1 — v. 25)_ can lead to ***boasting*** _(stage #2 — v. 18_ with its passive resistance that refuses to stand for Israel), which leads to ***arrogance*** _(stage #3 — v. 20)_ which can lead to ***active resistance*** _(stage #4_ — persecuting Israel), which may lead to being ***cut off by God*** _(stage #5_ — v. 22e). In the fear of God (v. 20), we deeply consider God’s goodness (v. 22a) which includes gratitude to God for allowing us to be grafted in to “the olive tree of Abraham” (v. 17).
+B. ***A 5-stage progression***: ***Ignorance*** *(stage #1 — v. 25)* can lead to ***boasting*** *(stage #2 — v. 18* with its passive resistance that refuses to stand for Israel), which leads to ***arrogance*** *(stage #3 — v. 20)* which can lead to ***active resistance*** *(stage #4* — persecuting Israel), which may lead to being ***cut off by God*** *(stage #5* — v. 22e). In the fear of God (v. 20), we deeply consider God’s goodness (v. 22a) which includes gratitude to God for allowing us to be grafted in to “the olive tree of Abraham” (v. 17).
 
 ><sup>17</sup>[Gentiles] were grafted into...the <ins>olive tree</ins> [Israel], <sup>18</sup>do not boast against the branches [Israel]... <sup>20</sup><ins>Do not be haughty, but fear</ins>. <sup>21</sup>For if God did not spare the natural branches [Israel], <ins>He may not spare you</ins> either. <sup>22</sup><ins>Consider the goodness</ins> and severity of God: on those who fell, severity; but toward you [Gentiles], goodness, <ins>if you continue</ins> in His goodness. Otherwise <ins>you will be cut off</ins>… <sup>25</sup>I do not desire…that you [Gentiles] should be <ins>ignorant of this mystery</ins>… (Rom. 11:17-25)
 
@@ -35,7 +35,7 @@ F. Gentile believers are called to ***provoke Israel with jealousy*** to know th
 
 1. I am grateful that those with a dispensationalists pre-tribulation rapture theology do not embrace replacement theology. They do teach that a great revival will come to Israel during the Great Tribulation — but this will only occur ***“after”*** the Church is raptured. Thus, some do not engage with God’s purposes for Israel in a deep way in this hour because they do not see a large number of Jewish people getting saved until the Great Tribulation, and some do not see themselves as having an integral role with other Gentiles in provoking Israel (Rom. 11:11).
 
-2. The IHOPKC leadership embraces historic premillennialism with a victorious Church. We believe that the Church will go through the Great Tribulation yet in great power and victory. At that time the _fullness of the Gentiles_ will come resulting _Israel being provoked to jealousy_.
+2. The IHOPKC leadership embraces historic premillennialism with a victorious Church. We believe that the Church will go through the Great Tribulation yet in great power and victory. At that time the *fullness of the Gentiles* will come resulting *Israel being provoked to jealousy*.
 
 G. The Church must take a stand to boldly declare God’s purposes for Israel so all the nations hear it
 
