@@ -7,17 +7,17 @@
 
 A. The second coming of Jesus is our hope (Titus 2:13). Jesus is passionate about coming to rescue His people, to destroy wickedness, and to fill the earth with God's glory. The saints will marvel (2 Thes. 1:10) at the pageantry associated with Jesus’ return in the glory of the Father, flaming fire, with all the angels, and music, fragrance and more. Our participation in this gives dignity to our life.
 
-><sup>10</sup>…when He comes to be…<Ins>marveled at among all</Ins> who have believed… (2 Thes. 1:10, NAS)
+><sup>10</sup>…when He comes to be…<ins>marveled at among all</ins> who have believed… (2 Thes. 1:10, NAS)
 
-><sup>12</sup>…denying worldly lusts, we should live soberly, righteously, and godly in the present age, <sup>13</sup><Ins>looking</Ins> for <Ins>the blessed hope</Ins> and glorious appearing of our great God…Jesus. (Titus 2:12-13)
+><sup>12</sup>…denying worldly lusts, we should live soberly, righteously, and godly in the present age, <sup>13</sup><ins>looking</ins> for <ins>the blessed hope</ins> and glorious appearing of our great God…Jesus. (Titus 2:12-13)
 
 B. Jesus described His second coming in the glory of His Father (Mt. 16:27).
 
-><sup>27</sup>For the Son of Man will come in <Ins>the glory of His Father</Ins> with His angels… (Mt. 16:27)
+><sup>27</sup>For the Son of Man will come in <ins>the glory of His Father</ins> with His angels… (Mt. 16:27)
 
 C. The glory of Jesus’ return will be like a multi-faceted diamond (Mt. 24:29-32). Jesus was preparing His people to overcome by understanding the glory of who He is and what He will do when He returns. This passage gives us a glimpse into the joy that He had in anticipating being with His Father on Sunday and knowing that He would return in the future in splendor and glory (Heb. 12:2).
 
-><sup>29</sup>Immediately <Ins>after</Ins> the tribulation of those days <Ins>the sun</Ins> will be darkened, and <Ins>the moon</Ins> will not give its light; <Ins>the stars</Ins> will fall from heaven, and the powers of the heavens will be shaken. <sup>30</sup>Then <Ins>the sign</Ins> of the Son of Man will appear…<Ins>all the tribes</Ins> of the earth will mourn, and they <Ins>will see</Ins> the Son of Man comings…with <Ins>great glory</Ins>. <sup>31</sup>He will send <Ins>His angels</Ins> with a great sound of a <Ins>trumpet</Ins>, and they will gather His elect [the rapture] from…one end of heaven to the other. (Mt. 24:29-32)
+><sup>29</sup>Immediately <ins>after</ins> the tribulation of those days <ins>the sun</ins> will be darkened, and <ins>the moon</ins> will not give its light; <ins>the stars</ins> will fall from heaven, and the powers of the heavens will be shaken. <sup>30</sup>Then <ins>the sign</ins> of the Son of Man will appear…<ins>all the tribes</ins> of the earth will mourn, and they <ins>will see</ins> the Son of Man comings…with <ins>great glory</ins>. <sup>31</sup>He will send <ins>His angels</ins> with a great sound of a <ins>trumpet</ins>, and they will gather His elect [the rapture] from…one end of heaven to the other. (Mt. 24:29-32)
 
 D. Jesus will return in the glory of the Father (Mt. 16:27) leading His royal procession to Jerusalem. (Ps. 68:24, 33) across the sky with all the saints (1 Thes. 3:13) and all the angels (Mt. 16:27; 25:31; Mk. 8:38; Lk. 9:26; 2 Thes. 1:7) as He travels across the whole earth—being seen by every person (Mt. 24:30; Rev. 1:7). He will raise the dead in Christ and then rapture believers who are alive on earth (Mt. 24:30-31; 1 Thes. 3:13; 4:14, 17). He will come in great power (Mk. 13:26), flaming fire (2 Thes. 1:8), and with the brightness and energy of lightning (Mt. 24:27). He will descend from heaven with a shout, the voice of an archangel, and the trumpet of God (1 Thes. 4:14-16). The sun and moon will be darkened as the stars fall and the very heavens are shaken (Mt. 24:29). The Father will turn the lights out across the whole earth and then suddenly turn them on to announce Jesus’ royal procession back to Jerusalem. This will be the largest gathering in history that will include several billion resurrected and raptured believers (1 Thes. 3:13; 4:17) and billions of angels (25:31).
 
@@ -29,21 +29,21 @@ F. There are many passages in the Old Testament that highlight Jesus' second com
 
 A. Jesus prophesied His procession across the sky — saying that it will be seen by all (Mt. 24:29-31). Jesus will lead a royal procession across the sky with all the saints (1 Thes. 3:13) and all the angels (Mt. 25:31) as He travels across the whole earth — being seen by every person (Mt. 24:30; Rev. 1:7).
 
-><sup>29</sup>…<Ins>after</Ins> the tribulation…<Ins>the sun</Ins> will be darkened… <sup>30</sup>Then <Ins>the sign</Ins> of the Son of Man will appear in heaven, and then <Ins>all the tribes</Ins> …<Ins>will see</Ins> the Son of Man coming…with <Ins>great glory</Ins>. (Mt. 24:29-30)
+><sup>29</sup>…<ins>after</ins> the tribulation…<ins>the sun</ins> will be darkened… <sup>30</sup>Then <ins>the sign</ins> of the Son of Man will appear in heaven, and then <ins>all the tribes</ins> …<ins>will see</ins> the Son of Man coming…with <ins>great glory</ins>. (Mt. 24:29-30)
 
 1. In my opinion “the sign” of the Son of Man is His royal procession across the sky (Mt. 24:30)
 
 2. All the angels will come with Jesus when returns (Mt. 25:31).
 
-><sup>31</sup>“…the Son of Man comes in His glory, and <Ins>all the holy angels with Him</Ins>…” (Mt. 25:31)
+><sup>31</sup>“…the Son of Man comes in His glory, and <ins>all the holy angels with Him</ins>…” (Mt. 25:31)
 
 3. All the saints will come with Jesus when returns (1 Thes. 3:13).
 
-><sup>13</sup>“…at the coming of our Lord Jesus Christ with <Ins>all His saints</Ins>.” (1 Thes. 3:13)
+><sup>13</sup>“…at the coming of our Lord Jesus Christ with <ins>all His saints</ins>.” (1 Thes. 3:13)
 
 4. Everyone on the earth will see Him (Mt. 24:30; Rev. 1:7)
 
-><sup>7</sup>Behold, He is coming with clouds, and <Ins>every eye will see Him</Ins>… (Rev. 1:7)
+><sup>7</sup>Behold, He is coming with clouds, and <ins>every eye will see Him</ins>… (Rev. 1:7)
 
 5. For Jesus to be seen by every eye requires that He makes a global procession in the sky over every inhabited place on earth. Some suggest that all will see Him via technology. I do not think that people would be convinced so as “to mourn” if they only saw Him by technology.
 
@@ -53,53 +53,53 @@ A. Jesus prophesied His procession across the sky — saying that it will be see
 
 B. Psalm 68 gives insight into Jesus’ procession across the sky on clouds to His temple in Jerusalem. David “book-ends” this song by describing the Messiah as “Him who rides on clouds” (68:4, 33). This is the most stunning cosmic display of power and beauty that has or will ever occur.
 
-><sup>4</sup>Sing to God…extol <Ins>Him who rides on the clouds</Ins>… <sup>24</sup>They have seen <Ins>Your procession</Ins>, O God, <Ins>the procession of my God</Ins>, my King, into <Ins>the sanctuary</Ins> [the temple]… <sup>29</sup>Because of Your <Ins>temple at Jerusalem</Ins>, kings will bring presents to You…<sup>32</sup>Sing to God, you kingdoms of the earth… <sup>33</sup>to <Ins>Him who rides on the heaven</Ins> of heavens.” (Ps. 68:4, 24-33)
+><sup>4</sup>Sing to God…extol <ins>Him who rides on the clouds</ins>… <sup>24</sup>They have seen <ins>Your procession</ins>, O God, <ins>the procession of my God</ins>, my King, into <ins>the sanctuary</ins> [the temple]… <sup>29</sup>Because of Your <ins>temple at Jerusalem</ins>, kings will bring presents to You…<sup>32</sup>Sing to God, you kingdoms of the earth… <sup>33</sup>to <ins>Him who rides on the heaven</ins> of heavens.” (Ps. 68:4, 24-33)
 
 C. The Lord’s procession into the sanctuary in Jerusalem is the high point of all history (68:24-27).
 
 D. Jesus will raise the dead in Christ and then rapture believers who are alive on earth (Mt. 24:30-31; 1 Thes. 3:13; 4:14, 17). This will be the largest gathering in history that will include several billion resurrected and raptured believers and billions of angels. It is a cosmic event of great glory that we will never forget. It will be the first time that all of God’s family from all history will meet together
 
-><sup>14</sup>...God will bring with Him [Jesus] <Ins>those who sleep</Ins> [believers who had died] in Jesus… <sup>16</sup>For the <Ins>dead in Christ</Ins> will rise first. <sup>17</sup>Then we <Ins>who are alive</Ins> and remain shall be <Ins>caught up</Ins> [raptured] <Ins>with them</Ins> in the clouds to meet the Lord <Ins>in the air</Ins>. (1 Thes. 4:14-17)
+><sup>14</sup>...God will bring with Him [Jesus] <ins>those who sleep</ins> [believers who had died] in Jesus… <sup>16</sup>For the <ins>dead in Christ</ins> will rise first. <sup>17</sup>Then we <ins>who are alive</ins> and remain shall be <ins>caught up</ins> [raptured] <ins>with them</ins> in the clouds to meet the Lord <ins>in the air</ins>. (1 Thes. 4:14-17)
 
-><sup>51</sup>…We shall not all sleep [die], but <Ins>we shall all be changed</Ins> — <sup>52</sup><Ins>in a moment</Ins>, in the twinkling of an eye, at the last trumpet…the dead will be raised incorruptible… (1 Cor. 15:51-52)
+><sup>51</sup>…We shall not all sleep [die], but <ins>we shall all be changed</ins> — <sup>52</sup><ins>in a moment</ins>, in the twinkling of an eye, at the last trumpet…the dead will be raised incorruptible… (1 Cor. 15:51-52)
 
 E. Jesus will come in great power, flaming fire, and with the brightness and energy of lightning.
 
-><sup>26</sup>Then they will see the Son of Man coming in the clouds with <Ins>great power and glory</Ins>. (Mk 13:26)
+><sup>26</sup>Then they will see the Son of Man coming in the clouds with <ins>great power and glory</ins>. (Mk 13:26)
 
-><sup>7</sup>…Jesus is revealed from heaven…<sup>8</sup>in <Ins>flaming fire</Ins> taking vengeance on those… (2 Thes. 1:7-8)
+><sup>7</sup>…Jesus is revealed from heaven…<sup>8</sup>in <ins>flaming fire</ins> taking vengeance on those… (2 Thes. 1:7-8)
 
-><sup>15</sup><Ins>The LORD will come with fire</Ins> and with <Ins>His chariots</Ins>,…to render His anger… (Isa. 66:15)
+><sup>15</sup><ins>The LORD will come with fire</ins> and with <ins>His chariots</ins>,…to render His anger… (Isa. 66:15)
 
-><sup>17</sup>And Elisha prayed…then the LORD opened the eyes of the young man, and he saw. And behold, the mountain was <Ins>full of horses</Ins> and <Ins>chariots of fire</Ins> all around Elisha. (2 Kgs. 6:17)
+><sup>17</sup>And Elisha prayed…then the LORD opened the eyes of the young man, and he saw. And behold, the mountain was <ins>full of horses</ins> and <ins>chariots of fire</ins> all around Elisha. (2 Kgs. 6:17)
 
-><sup>11</sup>I saw…<Ins>a white horse</Ins>. And He [Jesus] who sat on him was called Faithful and True… <sup>14</sup>And <Ins>the armies</Ins> in heaven…followed Him on <Ins>white horses</Ins>. (Rev. 19:11-14)
+><sup>11</sup>I saw…<ins>a white horse</ins>. And He [Jesus] who sat on him was called Faithful and True… <sup>14</sup>And <ins>the armies</ins> in heaven…followed Him on <ins>white horses</ins>. (Rev. 19:11-14)
 
 F. He will descend from heaven with a shout, the voice of an archangel, and the trumpet of God
 
-><sup>16</sup>[Jesus] will descend…with a <Ins>shout</Ins>, with the <Ins>voice of an archangel</Ins>, and with <Ins>the trumpet</Ins> of God. (1 Thes. 4:16)
+><sup>16</sup>[Jesus] will descend…with a <ins>shout</ins>, with the <ins>voice of an archangel</ins>, and with <ins>the trumpet</ins> of God. (1 Thes. 4:16)
 
-><sup>31</sup>He will send His angels with a <Ins>great sound of a trumpet</Ins>, and they will gather His elect… (Mt. 24:31)
+><sup>31</sup>He will send His angels with a <ins>great sound of a trumpet</ins>, and they will gather His elect… (Mt. 24:31)
 
-><sup>7</sup>…in <Ins>the days of the sounding</Ins> of the seventh angel…the mystery of God would be finished… (Rev. 10:7)
+><sup>7</sup>…in <ins>the days of the sounding</ins> of the seventh angel…the mystery of God would be finished… (Rev. 10:7)
 
 G. When Jesus returns, He will shout or roar so that all the earth trembles before Him (Isa. 30:30; 42:13; Jer. 25:30; Hos. 11:10; Joel 2:11; 3:16; 1 Thes. 4:16).
 
-><sup>30</sup>The LORD will cause <Ins>His glorious voice</Ins> to be heard and show <Ins>the descent of His arm</Ins>, with the indignation of His anger and…with scattering, <Ins>tempest</Ins>, and <Ins>hailstones</Ins>. (Isa. 30:30)
+><sup>30</sup>The LORD will cause <ins>His glorious voice</ins> to be heard and show <ins>the descent of His arm</ins>, with the indignation of His anger and…with scattering, <ins>tempest</ins>, and <ins>hailstones</ins>. (Isa. 30:30)
 
-><sup>22</sup>I will bring him [the Antichrist] to judgment…I will rain down on him… and on the many peoples who are with him, <Ins>flooding rain</Ins>, <Ins>great hailstones</Ins>, fire, and brimstone. (Ezek. 38:22)
+><sup>22</sup>I will bring him [the Antichrist] to judgment…I will rain down on him… and on the many peoples who are with him, <ins>flooding rain</ins>, <ins>great hailstones</ins>, fire, and brimstone. (Ezek. 38:22)
 
-><sup>16</sup>The LORD also will <Ins>roar from Zion</Ins>…the heavens and earth will shake… (Joel 3:16)
+><sup>16</sup>The LORD also will <ins>roar from Zion</ins>…the heavens and earth will shake… (Joel 3:16)
 
-><sup>30</sup> The LORD will <Ins>roar</Ins> from on high…He will give a <Ins>shout</Ins>…against all the inhabitants of the earth. <sup>31</sup>…the LORD has a <Ins>controversy</Ins> with the nations; (Jer. 25:30-31)
+><sup>30</sup> The LORD will <ins>roar</ins> from on high…He will give a <ins>shout</ins>…against all the inhabitants of the earth. <sup>31</sup>…the LORD has a <ins>controversy</ins> with the nations; (Jer. 25:30-31)
 
 H. The New Testament emphasizes that Jesus is coming back in the heavenly clouds of glory (Mt. 24:30; 26:64; Mk. 13:26; Lk. 21:27; Acts 1:9-11; 1 Thes. 4:17; Rev. 1:7; 14:14-16).
 
-><sup>14</sup>…behold, a white cloud, and <Ins>on the cloud sat One like the Son of Man</Ins>…” <sup>16</sup><Ins>He who sat on the cloud</Ins> thrust in His sickle on the earth, and the earth was reaped. (Rev. 14:14-16)
+><sup>14</sup>…behold, a white cloud, and <ins>on the cloud sat One like the Son of Man</ins>…” <sup>16</sup><ins>He who sat on the cloud</ins> thrust in His sickle on the earth, and the earth was reaped. (Rev. 14:14-16)
 
 I. The Old Testament references the Lord coming on clouds in a whirlwind with fire and more.
 
-><sup>13</sup>Behold, One like the Son of Man [Jesus], <Ins>coming with the clouds of heaven</Ins>! (Dan. 7:13)
+><sup>13</sup>Behold, One like the Son of Man [Jesus], <ins>coming with the clouds of heaven</ins>! (Dan. 7:13)
 
 J. The sun and moon will be darkened as the stars fall and the very heavens are shaken (Mt. 24:29). The Father will turn the lights out across the whole earth and then suddenly turn them on to announce Jesus’ royal procession back to Jerusalem.
 
@@ -107,7 +107,7 @@ J. The sun and moon will be darkened as the stars fall and the very heavens are 
 
 A. Isaiah prophesied a global intercessory worship movement (42:10-13) that will be connected to Jesus’ return (42:13) and the release of His end-time judgments (42:14-15). In 42:10-12, we see how beautifully the Body of Christ in the nations will respond to Jesus’ end-time leadership.
 
-><sup>10</sup>Sing to the LORD a <Ins>new song</Ins>, and His praise from the <Ins>ends of the earth</Ins>, you who <Ins>go down to the sea</Ins>, and all that is in it, you <Ins>coastlands</Ins>… <sup>11</sup>Let the <Ins>wilderness</Ins> and its <Ins>cities</Ins> lift up their voice, the <Ins>villages</Ins> that <Ins>Kedar</Ins> [Saudi Arabia] inhabits. Let the inhabitants of <Ins>Sela</Ins> [Jordan] <Ins>sing</Ins>… <sup>13</sup>The <Ins>LORD shall go forth</Ins> [Jesus’ return] like a <Ins>mighty man</Ins>; He shall <Ins>stir up His zeal</Ins> like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies…” <sup>14</sup>“I have been still and <Ins>restrained Myself</Ins>. Now I will cry like a woman in labor, I will pant and gasp at once. <sup>15</sup>I will lay <Ins>waste the mountains</Ins> and hills [earthquakes]…” (Isa. 42:10-15)
+><sup>10</sup>Sing to the LORD a <ins>new song</ins>, and His praise from the <ins>ends of the earth</ins>, you who <ins>go down to the sea</ins>, and all that is in it, you <ins>coastlands</ins>… <sup>11</sup>Let the <ins>wilderness</ins> and its <ins>cities</ins> lift up their voice, the <ins>villages</ins> that <ins>Kedar</ins> [Saudi Arabia] inhabits. Let the inhabitants of <ins>Sela</ins> [Jordan] <ins>sing</ins>… <sup>13</sup>The <ins>LORD shall go forth</ins> [Jesus’ return] like a <ins>mighty man</ins>; He shall <ins>stir up His zeal</ins> like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies…” <sup>14</sup>“I have been still and <ins>restrained Myself</ins>. Now I will cry like a woman in labor, I will pant and gasp at once. <sup>15</sup>I will lay <ins>waste the mountains</ins> and hills [earthquakes]…” (Isa. 42:10-15)
 
 B. ***The LORD shall go forth like a mighty man of war***: The Lord will show Himself to be a warrior (Ex. 15; Judg. 5; Isa. 28:21; 30:30-31; 31:4; 59:16-18; 63:3-4; Zech. 9:14; 14:3).
 
@@ -115,8 +115,8 @@ C. ***He shall prevail against His enemies***: Jesus will prevail against His en
 
 D. ***I will lay waste mountains***: He will lay waste mountains by earthquakes. Isaiah highlighted earthquakes and drought (42:15) that are described in the prophets and in the book of Revelation which will destroy the Antichrist’s resources and infrastructures (Isa. 2:10, 19, 21; 13:13; 29:6; Ezek. 38:19; Hag. 2:6, 21; Zech. 14:4-5; Heb. 12:26-27; Rev. 6:14; 8:5; 11:13; 16:18-20).
 
-><sup>18</sup>There was a <Ins>great earthquake</Ins>…as had not occurred since men were on the earth… (Rev. 16:18)
+><sup>18</sup>There was a <ins>great earthquake</ins>…as had not occurred since men were on the earth… (Rev. 16:18)
 
 E. Revelation 22:17 prophesied of the Church in unity with what the Spirit is saying and doing. As sons of God, we are to experience ***God’s throne*** as heirs of His power (Rom. 8:17). As the Bride of Christ, we are to experience ***God’s heart*** (emotions for us). Jesus is a King with power and a Bridegroom with desire. He is looking for relationship, not just a kingdom workforce.
 
-><sup>17</sup>The Spirit and the <Ins>Bride</Ins> say, “<Ins>Come</Ins>!”… <sup>20</sup>He who testifies to these things says, “Surely I am coming quickly.” Amen. Even so, <Ins>come, Lord Jesus</Ins>! (Rev. 22:17-20)
+><sup>17</sup>The Spirit and the <ins>Bride</ins> say, “<ins>Come</ins>!”… <sup>20</sup>He who testifies to these things says, “Surely I am coming quickly.” Amen. Even so, <ins>come, Lord Jesus</ins>! (Rev. 22:17-20)
