@@ -15,13 +15,13 @@ B. The Bride of Christ message (2:16-20) is given in context to God disciplining
 
 C. The way Lord relates to Israel mirrors how He relates to the body of Christ. The Lord remains faithful to love His people even after unfaithfulness.
 
->14“...I will allure her, will bring her into the wilderness [under divine discipline], and speak comfort to her. 15I will give her...the Valley of Achor as a door of hope; she shall sing there... 16And it shall be, in that day...that you will call Me ‘My Husband’...” (Hos. 2:14-16)
+><sup>14</sup>“...I will allure her, will bring her into the wilderness [under divine discipline], and speak comfort to her. <sup>15</sup>I will give her...the Valley of Achor as a door of hope; she shall sing there... <sup>16</sup>And it shall be, in that day...that you will call Me ‘My Husband’...” (Hos. 2:14-16)
 
 1. I will allure her: God’s main way of turning His people from unfaithfulness is by His kindness and beauty. The Lord will graciously allure Israel after a season discipline.
 
 2. Speak comfort: God’s messengers are to speak God’s comfort to Jerusalem
 
->1“Comfort, yes, comfort My people!” Says your God. 2“Speak comfort to Jerusalem…” (Isa. 40:1-2)
+><sup>1</sup>“Comfort, yes, comfort My people!” Says your God. <sup>2</sup>“Speak comfort to Jerusalem…” (Isa. 40:1-2)
 
 3. She shall sing there: God will awaken Israel to His love and she with new songs of love to Him and about Him even in midst of her struggles in the wilderness.
 
@@ -31,7 +31,7 @@ C. The way Lord relates to Israel mirrors how He relates to the body of Christ. 
 
 A. Israel will accept Jesus as Messiah as they see Him as their Husband!
 
->16In that day, that you will call Me ‘My Husband’…” 19I will betroth you to Me forever; yes, I will betroth you to Me in righteousness and justice, in lovingkindness and mercy; 20I will betroth you to Me in faithfulness, and you shall know the LORD. (Hos. 2:16-20)
+><sup>16</sup>In that day, that you will call Me ‘My Husband’…” <sup>19</sup>I will betroth you to Me forever; yes, I will betroth you to Me in righteousness and justice, in lovingkindness and mercy; <sup>20</sup>I will betroth you to Me in faithfulness, and you shall know the LORD. (Hos. 2:16-20)
 
 B. My husband: All Israel will saved in context to revelation of Jesus’ the Bridegroom King.
 

@@ -9,25 +9,25 @@ A. David is a model for the end-time Church (Isa. 55:3-5) when the Spirit raises
 
 B. David is a witness and model for the end-time Church (Isa. 55:3-5). More is written in the Bible about him than any other except Jesus. He pictures one who loves, worships, and wars in the Spirit.
 
->3…I will make an everlasting covenant with you—the sure mercies of David. 4Indeed I have given him as a witness [model] to the people, a leader and commander for the people… 5Surely…nations who do not know you shall run to you because…He has glorified you. (Isa. 55:3-5)
+><sup>3</sup>…I will make an everlasting covenant with you—the sure mercies of David. <sup>4</sup>Indeed I have given him as a witness [model] to the people, a leader and commander for the people… <sup>5</sup>Surely…nations who do not know you shall run to you because…He has glorified you. (Isa. 55:3-5)
 
->17Show me [David] a sign [model] for good…because You, LORD, have helped me. (Ps. 86:17)
+><sup>17</sup>Show me [David] a sign [model] for good…because You, LORD, have helped me. (Ps. 86:17)
 
 C. God testified that David was a man after His own heart (Acts 13:22).
 
->22…He raised up for them David as king, to whom also He gave testimony and said, ‘I have found David…a man after My own heart, who will do all My will.’ (Acts 13:22)
+><sup>22</sup>…He raised up for them David as king, to whom also He gave testimony and said, ‘I have found David…a man after My own heart, who will do all My will.’ (Acts 13:22)
 
->14…The LORD has sought for Himself a man after His own heart, and the LORD has commanded him to be commander over His people…” (1 Sam. 13:14)
+><sup>14</sup>…The LORD has sought for Himself a man after His own heart, and the LORD has commanded him to be commander over His people…” (1 Sam. 13:14)
 
->9For the eyes of the LORD run to and fro throughout the whole earth, to show Himself strong on behalf of those whose heart is loyal to Him. (2 Chr. 16:9)
+><sup>9</sup>For the eyes of the LORD run to and fro throughout the whole earth, to show Himself strong on behalf of those whose heart is loyal to Him. (2 Chr. 16:9)
 
 D. David’s obedience and ministry is a “standard” of what God is seeking to establish in the earth.
 
->15I will give you shepherds according to My heart, who will feed you with…understanding… 17At that time Jerusalem shall be called The Throne of the LORD… (Jer. 3:15-17)
+><sup>15</sup>I will give you shepherds according to My heart, who will feed you with…understanding… <sup>17</sup>At that time Jerusalem shall be called The Throne of the LORD… (Jer. 3:15-17)
 
 E. God will raise up the tabernacle of David for Jesus as the Son of David. This includes many things such as God’s government being released on earth in context to worship and prayer.
 
->11“I will raise up the tabernacle of David…I will raise up…and rebuild it… (Amos 9:11-12)
+><sup>11</sup>“I will raise up the tabernacle of David…I will raise up…and rebuild it… (Amos 9:11-12)
 
 ## II. OVERVIEW OF DAVID'S HEART RESPONSES
 
@@ -39,15 +39,15 @@ A. I identify 3 expressions of being a person after God's heart (1 Sam. 13:14). 
 
 3. David served the purpose of God’s heart: We are to seek the fullness of God’s purpose for our life and generation. Find out what God is doing in your generation and throw yourself into it. God testified that David did “all” of God’s will and served His purpose (Acts 13:22, 36).
 
->36“David…served the purpose of God in his own generation.” (Acts 13:36, NASB)
+><sup>36</sup>“David…served the purpose of God in his own generation.” (Acts 13:36, NASB)
 
->22“I have found David...a man after My own heart, who will do all My will.” (Acts 13:22)
+><sup>22</sup>“I have found David...a man after My own heart, who will do all My will.” (Acts 13:22)
 
 B. David’s heart response to God: We can learn to respond to God rightly as David did in times of pressure, failure, and success, and in diligently pursuing God in the changing seasons of life.
 
 C. David was a student of God’s beauty—His glory (splendor), heart (emotions), wisdom, power, etc.
 
->4One thing I have desired of the LORD, that will I seek: that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to inquire in His temple. (Ps. 27:4)
+><sup>4</sup>One thing I have desired of the LORD, that will I seek: that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to inquire in His temple. (Ps. 27:4)
 
 1. How David saw God’s heart: David was a “theologian of God’s beauty and emotions.”
 

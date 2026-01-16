@@ -17,13 +17,13 @@ A. The love burning in God’s heart has at least five distinct expressions that
 
 B. The redeemed are to love themselves in God’s love and for God’s sake. We love ourselves through the lens of the revelation of Jesus, His cross, and our great worth to Him. We have received the very gift of God’s righteousness (2 Cor. 5:21). We have indescribable value and worth to Jesus. Seeing this changes the way we feel about God, our life, and others.
 
->39“And the second is like it: ‘You shall love your neighbor as yourself.’” (Mt. 22:39)
+><sup>39</sup>“And the second is like it: ‘You shall love your neighbor as yourself.’” (Mt. 22:39)
 
 C. The premise of loving ourselves in God’s grace is to agree with what God sees. He sees the eternal story of our lives in His family—not only our temporal story that is flawed with sin and weakness.
 
 D. The Bible calls us both to love ourselves (Mt. 22:39) and to hate our lives (Lk. 14:26). Thus, we rejoice in our identity and life in Christ yet deny our actions and attitudes that are contrary to Him.
 
->26“If anyone…does not hate …his own life he cannot be My disciple.” (Lk. 14:26)
+><sup>26</sup>“If anyone…does not hate …his own life he cannot be My disciple.” (Lk. 14:26)
 
 1. We love who we are in Christ—our new identity in Christ and what we do in God’s will.
 
@@ -33,35 +33,35 @@ E. Bernard of Clairvaux spoke the blessedness of loving oneself in God and for G
 
 F. Jesus delights in who we are in the grace of God. He wants us to love the person that He loves. He wants us to enjoy how much He enjoys us—to delight in how He delights in us.
 
->4But you shall be called Hephzibah…for the LORD delights in you… (Isa. 62:4)
+><sup>4</sup>But you shall be called Hephzibah…for the LORD delights in you… (Isa. 62:4)
 
->19He delivered me [David] because He delighted in me. (Ps. 18:19)
+><sup>19</sup>He delivered me [David] because He delighted in me. (Ps. 18:19)
 
 G. We must receive what the Word says about the activities we perform in God’s will, though many are small and go unnoticed by others. In fact, most of our love and service to Jesus consists of small acts, but they move His heart, and He will reward us forever for them.
 
->17“Well done…you were faithful in a very little, have authority over ten cities.” (Lk. 19:17)
+><sup>17</sup>“Well done…you were faithful in a very little, have authority over ten cities.” (Lk. 19:17)
 
->21“You were faithful over a few things, I will make you ruler over many things.” (Mt. 25:21)
+><sup>21</sup>“You were faithful over a few things, I will make you ruler over many things.” (Mt. 25:21)
 
 H. Ask the Holy Spirit to let you see what He sees and to feel what He feels when He looks at you. When we know that His eyes are on us, we feel no need of striving to get the eyes of people to recognize our accomplishments; we do not need the time and attention of the powerful and popular people, because we already have the time and attention of the most glorious Man.
 
 I. We must not regard or evaluate and define ourselves according to the flesh or according to how we look or how much money, influence, or gifting we have, but see our success and value in Christ.
 
->16From now on, we regard no one according to the flesh… 17Therefore, if anyone is in Christ, he [our spirit] is a new creation…all things have become new. (2 Cor. 5:16-17)
+><sup>16</sup>From now on, we regard no one according to the flesh… <sup>17</sup>Therefore, if anyone is in Christ, he [our spirit] is a new creation…all things have become new. (2 Cor. 5:16-17)
 
 J. Self-hatred comes from seeing our worth and success according to the flesh, comparing ourselves to others, and evaluating our lives by the values of this present evil age. We repent of longing to have another’s calling, gifting, family background, appearance, etc. We can imitate the dedication of godly people without wanting to have their calling or life circumstances.
 
->12They, measuring themselves by themselves, and comparing themselves among themselves, are not wise. (2 Cor. 10:12)
+><sup>12</sup>They, measuring themselves by themselves, and comparing themselves among themselves, are not wise. (2 Cor. 10:12)
 
 K. We trust Jesus’ leadership related to the unchangeable aspects of our life—our appearance, parents, family heritage, ethnicity, gender, giftings, limitations, deficiencies, mental, emotional, physical, financials capacities, life circumstances, our ministry assignment (even if it is small), etc.
 
->13You formed my inward parts [physically, emotionally, mentally]… 14I will praise You, for I am fearfully and wonderfully made; marvelous are Your works, and that my soul knows very well… 15I was skillfully wrought in the lowest parts [mother’s womb]… 17How precious are Your thoughts to me, O God! How great is the sum… (Ps. 139:13-17)
+><sup>13</sup>You formed my inward parts [physically, emotionally, mentally]… <sup>14</sup>I will praise You, for I am fearfully and wonderfully made; marvelous are Your works, and that my soul knows very well… <sup>15</sup>I was skillfully wrought in the lowest parts [mother’s womb]… <sup>17</sup>How precious are Your thoughts to me, O God! How great is the sum… (Ps. 139:13-17)
 
 1. David saw God’s leadership in his life as wonderful and marvelous. He thanked Him for it.
 
 2. By faith David saw his limitations and difficulties as working for his good (Rom. 8:28). He saw beyond his limitation to embrace God’s good story that was unfolding in his life.
 
->28And we know that all things work together for good to those who love God, to those who are the called according to His purpose. (Rom 8:28)
+><sup>28</sup>And we know that all things work together for good to those who love God, to those who are the called according to His purpose. (Rom 8:28)
 
 L. Loving ourselves includes not despising our appearance, gifting, or ministry assignment, no matter how small it is.
 
