@@ -61,6 +61,6 @@ H. Isaiah was undone when he saw the Lord's holiness or transcendent beauty (6:1
 
 ><sup>1</sup>…I saw the Lord sitting on a throne…<sup>2</sup>Above it stood seraphim; each one had six wings: with two <ins>he covered his face</ins>, with two he covered his feet, and with two he flew. <sup>3</sup>And one cried to another and said: “<ins>Holy, holy, holy</ins> is the LORD of hosts; <ins>the whole earth is full of His glory</ins>!”… <sup>5</sup>I said: “Woe is me, for I am undone…<ins>for my eyes have seen the King</ins>…” (Isa. 6:1-5)
 
-I. The word ***holy*** means to be ***“separate from”*** — There are two applications of God’s holiness. God is holy or ***separated from all that is sinful***. This speaks of His purity and moral perfection. God is holy or ***separated from all that is common or created***. He is infinitely superior to all that exists—speaking of His *transcendent beauty* — in all His attributes love, purity, wisdom, power, etc.
+I. The word ***holy*** means to be ***“separate from”*** — There are two applications of God’s holiness. God is holy or ***separated from all that is sinful***. This speaks of His purity and moral perfection. God is holy or ***separated from all that is common or created***. He is infinitely superior to all that exists — speaking of His *transcendent beauty* — in all His attributes love, purity, wisdom, power, etc.
 
 J. Paul prayed for others to receive greater insight into the knowledge of God's beauty (Eph. 1:16-19).
