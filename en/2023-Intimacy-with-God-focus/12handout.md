@@ -27,10 +27,10 @@ D. Isaiah prophesied that the Spirit would emphasize Jesus’ beauty (33:17) in 
 
 E. God’s beauty includes how He thinks and feels, what He does, how He looks; His creation, redemption, leadership; and how He designed humans to act and interact. His beauty is seen:  
 1. In sights, sounds, fragrances—colors, brilliance, music, melodies, harmonies, fragrances  
-2. In knowledge—we are moved by advances in science, medicine, technology, architecture, etc.  
-3. In noble virtues—life stories of courage, generosity, compassion—bios, novels, movies, etc.  
-4. In human abilities—singers, musicians, athletes, writers, artists, composers, producers  
-5. In society—when justice prevails and reconciliation occurs between races, nations, etc.
+2. In knowledge — we are moved by advances in science, medicine, technology, architecture, etc.  
+3. In noble virtues — life stories of courage, generosity, compassion—bios, novels, movies, etc.  
+4. In human abilities — singers, musicians, athletes, writers, artists, composers, producers  
+5. In society — when justice prevails and reconciliation occurs between races, nations, etc.
 
 ## II. GOD’S BEAUTY SEEN IN CREATION
 
