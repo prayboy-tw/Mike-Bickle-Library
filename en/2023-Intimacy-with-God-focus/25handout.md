@@ -7,32 +7,32 @@
 
 A. The combination of an unprecedented outpouring of the Spirit with betrayal is part of the optimum environment for the Church to be transformed in order to relate as an unified international family of affection (Jn. 17:22-23). Multitudes in the end-time Church will be progressing toward mature love, while many will be overcome with offense that will lead them to betray other believers (Mt. 24:10).
 
-><sup>22</sup>“And the glory which You gave Me I have given them, that they may be one just as We are one: <sup>23</sup>…that the world may know that You have sent Me…” (Jn. 17:22-23)
+><sup>22</sup>“And <ins>the glory</ins> which You gave Me I have given them, that <ins>they may be one</ins> just as We are one: <sup>23</sup>…that <ins>the world may know</ins> that You have sent Me…” (Jn. 17:22-23)
 
-><sup>10</sup>“And then many will be offended, will betray one another...<sup>12</sup>the love of many will grow cold… <sup>14</sup>This gospel…will be preached in all the world…then the end will come.” (Mt. 24:10-14)
+><sup>10</sup>“And then <ins>many</ins> will be <ins>offended</ins>, will <ins>betray</ins> one another...<sup>12</sup>the love of <ins>many</ins> will grow cold… <sup>14</sup>This gospel…will be preached in <ins>all the world</ins>…then the end will come.” (Mt. 24:10-14)
 
-><sup>16</sup>“You will be betrayed even by parents and brothers, relatives and friends…” (Lk. 21:16)
+><sup>16</sup>“You will be <ins>betrayed</ins> even by <ins>parents</ins> and brothers, <ins>relatives</ins> and <ins>friends</ins>…” (Lk. 21:16)
 
-B. We must be alerted to the two extreme social and spiritual developments occurring simultaneously in the global body of Christ in the end times. They are total opposites—a culture of betrayal with an increasing hardness of heart (Mt. 24:10) in contrast to a culture of deep love and unity (Jn. 17:23).
+B. We must be alerted to the two extreme social and spiritual developments occurring simultaneously in the global body of Christ in the end times. They are total opposites — a culture of betrayal with an increasing hardness of heart (Mt. 24:10) in contrast to a culture of deep love and unity (Jn. 17:23).
 
-C. Betrayal creates urgency for intimacy with God—that is to go much deeper in our relationship with God to find understanding, reconciliation, healing, and peace for the pain that is caused by betrayal.
+C. Betrayal creates urgency for intimacy with God — that is to go much deeper in our relationship with God to find understanding, reconciliation, healing, and peace for the pain that is caused by betrayal.
 
-D. Betrayal is an “accelerant” that leads to faster growth in humble love or in bitterness and offense.
+D. Betrayal is an “***accelerant***” that leads to faster growth in humble love *or* in bitterness and offense.
 
 E. The gospel is made known to all nations (Mt. 24:14; Jn. 17:23) in context to betrayal and pressure.
 
-F. By definition, betrayal is in context to a close relationship—including family and friends.
+F. By definition, betrayal is in context to a close relationship — including family and friends.
 
-G. Betrayal is both a demonic attack to hinder our spiritual growth and a divine gift to enhance it. God granted and appointed that His people endure being persecuted and betrayed (Phil. 1:29; 1 Thes. 3:3) that they may be transformed by it—leading to great benefit to them in this age and the age to come.
+G. Betrayal is both a demonic attack to hinder our spiritual growth and a divine gift to enhance it. God granted and appointed that His people endure being persecuted and betrayed (Phil. 1:29; 1 Thes. 3:3) that they may be transformed by it — leading to great benefit to them in this age and the age to come.
 
-><sup>29</sup>For to you it has been granted on behalf of Christ…to suffer for His sake… (Phil. 1:29)
+><sup>29</sup>For to you <ins>it has been granted</ins> on behalf of Christ…to suffer for His sake… (Phil. 1:29)
 
 H. Those relating in godly ways contend for the destiny, honor, and family blessings of others. Hundreds of millions will respond to betrayal in a godly way resulting in the supernatural end-time unity of the Church. What Satan means for evil, the Lord uses for good (Gen. 50:20)
 
-><sup>44</sup>I say to you, love your enemies, bless those who curse you, do good to those who hate you… <sup>45</sup>that you may be sons of your Father…for He makes His sun rise on the evil… (Mt. 5:44-45)
+><sup>44</sup>I say to you, <ins>love</ins> your enemies, <ins>bless</ins> those who curse you, <ins>do good</ins> to those who hate you… <sup>45</sup>that <ins>you may be sons of your Father</ins>…for He makes His sun rise on <ins>the evil</ins>… (Mt. 5:44-45)
 
 I. See other Mike Bickle messages on persecution and betrayal from John 15-16:  
-The Certainty of Persecution in the West & Its Blessing (Jn. 15:18-24)  
-Persecution: The Seminary of the Holy Spirit (Jn. 16:1-4)  
-Encountering God’s Glory in the Face of Betrayal (Jn. 16:2)  
-How Jesus Prepares Us To Overcome Offense (Jn. 16:5-7)
+*The Certainty of Persecution in the West & Its Blessing (Jn. 15:18-24)*  
+*Persecution: The Seminary of the Holy Spirit (Jn. 16:1-4)*  
+*Encountering God’s Glory in the Face of Betrayal (Jn. 16:2)*  
+*How Jesus Prepares Us To Overcome Offense (Jn. 16:5-7)*
