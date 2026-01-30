@@ -20,25 +20,25 @@ C. There is no record of an occasion when all the nations and events occurred as
 
 D. The final judgment on these 10 nations and the conversion of some as seen in 83:16-18 will occur in fullness in the future when many nations together with the Antichrist’s 10-nation confederacy come against Israel just prior to Jesus’ return (Joel 3:2, 12; Zeph. 3:8; Zech. 12:3; 14:2).
 
->16Fill their faces with shame, that they may seek Your name…17Let them be confounded and dismayed forever; Yes, let them be put to shame and perish [as nations], 18that they may know that You…are the Most High over all the earth. (Ps. 83:16-18)
+><sup>16</sup>Fill their faces with shame, that they may seek Your name…<sup>17</sup>Let them be confounded and dismayed forever; Yes, let them be put to shame and perish [as nations], <sup>18</sup>that they may know that You…are the Most High over all the earth. (Ps. 83:16-18)
 
 ## II. THE 10-NATION CONFEDERATION UNDER THE ANTICHRIST’S LEADERSHIP 
 
 A. Daniel prophesied a kingdom that would devour the earth under the Antichrist’s leadership together with 10 kings—thus a 10-nation confederation (Dan. 7:7, 20, 24; Rev. 12:3; 13:1; 17:3, 7, 12, 16). 
 
->23“…he [angel] said: ‘[It]…shall be a fourth kingdom…[it] shall devour the whole earth…  24The ten horns are ten kings who shall arise from this kingdom.’” (Dan. 7:23-24)
+><sup>23</sup>“…he [angel] said: ‘[It]…shall be a fourth kingdom…[it] shall devour the whole earth…  <sup>24</sup>The ten horns are ten kings who shall arise from this kingdom.’” (Dan. 7:23-24)
 
 B. Ten kings will give their allegiance to the Antichrist (Rev 17:12-13). These kings will come into unity as “one kingdom” which will result in the strongest power base in history—with more people, money, natural resources, military power, and technology than any other kingdom ever had.
 
->12The ten horns which you saw are ten kings…13These are of one mind [forming a confederation] and they will give their power and authority to the beast [Antichrist]…” (Rev. 17:12-13)
+><sup>12</sup>The ten horns which you saw are ten kings…<sup>13</sup>These are of one mind [forming a confederation] and they will give their power and authority to the beast [Antichrist]…” (Rev. 17:12-13)
 
 C. Ezekiel prophesied against Gog—a prophetic reference and name for the Antichrist (Ezek. 38:1-3). Gog is a leader from the land of Magog, who will be over the territories of Meshech and Tubal. The land of Magog is Gog’s home country. Magog is probably a reference to western Turkey. Many identify Meshech and Tubal as territory that is mostly in Turkey, yet possibly reaching into parts of Syria, Armenia, or areas near southern Russia, in the far north of Israel (Ezek. 38:6, 15; 39:2). 
 
->2“Son of man, set your face against Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him, 3and say…‘Behold, I am against you, O Gog…’” (Ezek. 38:2-3)
+><sup>2</sup>“Son of man, set your face against Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him, <sup>3</sup>and say…‘Behold, I am against you, O Gog…’” (Ezek. 38:2-3)
 
 D. The Lord will lead Gog (the Antichrist) in an irresistible way with “hooks in his jaws” to attack Israel (Ezek. 38:4-9) as part of His plan to awaken Israel and the nations to salvation (Ezek. 38:16).
 
->4I will…put hooks into your jaws, and lead you out, with all your army…5Persia, Ethiopia, and Libya are with them…6Gomer and all its troops; the house of Togarmah from far north…many people are with you…16In the latter days I will bring you against My land, so that the nations may know Me…17The prophets…prophesied for years…that I would bring you against them.” (Ezek. 38:4-6, 16-17) 
+><sup>4</sup>I will…put hooks into your jaws, and lead you out, with all your army…<sup>5</sup>Persia, Ethiopia, and Libya are with them…<sup>6</sup>Gomer and all its troops; the house of Togarmah from far north…many people are with you…<sup>16</sup>In the latter days I will bring you against My land, so that the nations may know Me…<sup>17</sup>The prophets…prophesied for years…that I would bring you against them.” (Ezek. 38:4-6, 16-17) 
 
 1. Persia, Ethiopia, and Libya: Iran (Persia), Ethiopia (Cush) and Libya (Put) will join the Antichrist’s coalition.  Persia refers to modern-day Iran. Ancient Cush is translated as Ethiopia but includes northern Sudan. Libya (Put) includes portions of northern Africa. 
 
@@ -52,23 +52,23 @@ D. The Lord will lead Gog (the Antichrist) in an irresistible way with “hooks 
 
 E. Gog will attack Israel after she is defenseless and without walls (Ezek. 38:10-13). Israel maintains walls at the West Bank as a security barrier. It will be over 400 miles upon completion. Sheba and Dedan (both in Arabia) and Tarshish (Spain) will desire to plunder Israel (Ezek. 38:13).
 
->10…“On that day…you will make an evil plan…11[to] go up against a land of unwalled villages… to a peaceful people, who dwell safely…12to stretch out your hand against…a people gathered from the nations [to Israel especially after 1948]…’ 13Sheba, Dedan, the merchants of Tarshish, and all their young lions will say to you, ‘…Have you gathered your army…to carry away silver and gold, to take away livestock and goods, to take great plunder?’” (Ezek. 38:10-13) 
+><sup>10</sup>…“On that day…you will make an evil plan…<sup>11</sup>[to] go up against a land of unwalled villages… to a peaceful people, who dwell safely…<sup>12</sup>to stretch out your hand against…a people gathered from the nations [to Israel especially after 1948]…’ <sup>13</sup>Sheba, Dedan, the merchants of Tarshish, and all their young lions will say to you, ‘…Have you gathered your army…to carry away silver and gold, to take away livestock and goods, to take great plunder?’” (Ezek. 38:10-13) 
 
 F. The Lord will be glorified in judging the Antichrist (Ezek. 38:18-23). Jesus will judge the Antichrist and his armies with pestilence, bloodshed, flooding rain, great hailstones, fire, and brimstone. 
 
->18“…At the time, when Gog comes against the land of Israel…21I will call for a sword against Gog …every man’s sword will be against his brother. 22I will bring him to judgment with pestilence and bloodshed; I will rain down on him…flooding rain, great hailstones, fire, and brimstone… 23I will be known in the eyes of many nations. Then they shall know that I am the Lord.” (Ezek. 38:18-23) 
+><sup>18</sup>“…At the time, when Gog comes against the land of Israel…<sup>21</sup>I will call for a sword against Gog …every man’s sword will be against his brother. <sup>22</sup>I will bring him to judgment with pestilence and bloodshed; I will rain down on him…flooding rain, great hailstones, fire, and brimstone… <sup>23</sup>I will be known in the eyes of many nations. Then they shall know that I am the Lord.” (Ezek. 38:18-23) 
 
 ## III. PRAYER FOR NATIONAL DELIVERANCE FROM 10 HOSTILE NATIONS (PS. 83:1-4)
 
 A. Asaph prayed for the Lord to intervene to deliver Israel from a confederation of nations determined to exterminate Israel (83:1-4). He offers his pray to EL, the Mighty One who has infinite power. 
 
->1Do not keep silent, O God! Do not hold Your peace, and do not be still, O God! 2For behold, Your enemies make a tumult [storm]; and those who hate You have lifted up their head. 3They have taken crafty counsel against Your people and consulted together against Your sheltered ones. 4They have said, “Come, and let us cut them off from being a nation, that the name of Israel may be remembered no more.” (Ps. 83:1-4) 
+><sup>1</sup>Do not keep silent, O God! Do not hold Your peace, and do not be still, O God! <sup>2</sup>For behold, Your enemies make a tumult [storm]; and those who hate You have lifted up their head. <sup>3</sup>They have taken crafty counsel against Your people and consulted together against Your sheltered ones. <sup>4</sup>They have said, “Come, and let us cut them off from being a nation, that the name of Israel may be remembered no more.” (Ps. 83:1-4) 
 
 1. Do not keep silent: He asked God to break His silence and not to hold His peace—that is, not to continue to be silent by restraining His judgments against Israel’s enemies. We are living today in a long period of divine silence related to His judgments. God will break His silence and speak in judgment to the nations that engage in the Antichrist’s persecution of His people. 
 
 2. Both Asaph and Isaiah prayed that God would “arise” in judgment and no longer “be silent” (Ps. 50:3 82:8; 83:1; 94:2; Isa. 42:15; 62:1). God has been “silent” in terms of global judgments—the only time He released a “global judgment” was in the days of Noah. 
 
->14“I have held My peace [kept silent] a long time, I have been still and restrained Myself… 15I will lay waste the mountains…I will make the rivers coastlands…” (Isa. 42:14-15) 
+><sup>14</sup>“I have held My peace [kept silent] a long time, I have been still and restrained Myself… <sup>15</sup>I will lay waste the mountains…I will make the rivers coastlands…” (Isa. 42:14-15) 
 
 3. It is important to understand the biblical significance of God being silent as related to His judgment. For 2,000 years, Jesus has kept silent in terms of openly confronting evil across the earth. He will not always be silent in His judgments but will remove evil from the nations. 
 
@@ -80,13 +80,13 @@ C. Those who hate You: Hatred of Israel and the God of Israel will one day unify
 
 D. Your enemies have lifted up their head: In 83:2, Israel’s enemies are also enemies of God. In declaring war on Israel, seeking to exterminate them, they are declaring war on God Himself. The attack is against God (83:2, 5; Ps. 2:1-3), though to many it will seem like attacking only Israel. 
 
->2The kings of the earth…take counsel together, against the Lord and against His Anointed… (Ps. 2:2) 
+><sup>2</sup>The kings of the earth…take counsel together, against the Lord and against His Anointed… (Ps. 2:2) 
 
 E. They have consulted together (83:3): The nations will take “crafty counsel” against Israel.
 
 F. Your sheltered ones: God’s people are referred as His sheltered or His hidden ones (Ps. 27:5; 31:20). We hide things to preserve them—God’s people are protected from the fullness of the enemy’s rage. 
 
->5In the time of trouble He shall hide me in His pavilion… (Ps. 27:5) 
+><sup>5</sup>In the time of trouble He shall hide me in His pavilion… (Ps. 27:5) 
 
 G. Let us cut Israel off from being a nation (83:4): These enemies determined to cut Israel off from being a nation. Hitler attempted this, and radical Islam is committed to it, as will be the Antichrist. 
 
@@ -94,7 +94,7 @@ G. Let us cut Israel off from being a nation (83:4): These enemies determined to
 
 A. Ten of Israel’s enemies are described as making a covenant or confederacy against God (83:5-8). 
 
->5They have consulted together with one consent; they form a confederacy [covenant] against You: 6the tents of Edom and the Ishmaelites; Moab and the Hagrites; 7Gebal, Ammon, and Amalek; Philistia with the inhabitants of Tyre; 8Assyria also has joined with them; they have helped the children of Lot [Moab and Ammon]. (Ps. 83:5-8) 
+><sup>5</sup>They have consulted together with one consent; they form a confederacy [covenant] against You: <sup>6</sup>the tents of Edom and the Ishmaelites; Moab and the Hagrites; <sup>7</sup>Gebal, Ammon, and Amalek; Philistia with the inhabitants of Tyre; <sup>8</sup>Assyria also has joined with them; they have helped the children of Lot [Moab and Ammon]. (Ps. 83:5-8) 
 
 B. They have formed a confederacy against God (83:5):  This implies a formal political treaty or covenant against God. The Hebrew for “form a confederacy” is literally “to enter a covenant.” 
 
@@ -116,7 +116,7 @@ F. The Ishmaelites: The Ishmaelites were the descendants of Ishmael, Abraham’s
 
 G. Moab and Ammon: Moab and Ammon were two sons of Lot by incestuous sexual relations with his two daughters sometime after the destruction of Sodom (Gen. 19:37-38). Lot was Abraham’s nephew and a first cousin to Isaac (Gen 11:27, 31). Lot’s two sons, Moab and Ammon, were second cousins to Isaac’s two sons, Jacob and Esau. The Moabites lived along the east shore of the Dead Sea and in what is modern-day western Jordan. The Ammonites also settled in present-day Jordan. 
 
->30Then Lot [fled Sodom]… and he and his two daughters dwelt in a cave. 3Now the firstborn said, “…there is no man on the earth to come in to us… 32Come, let us make our father drink wine, and we will lie with him that we may preserve the lineage of our father”…36Both the daughters of Lot were with child by their father. 37The firstborn bore a son…he is the father of the Moabites… 38And the younger…bore a son…he is the father of the people of Ammon… (Gen. 19:30-38) 
+><sup>30</sup>Then Lot [fled Sodom]… and he and his two daughters dwelt in a cave. <sup>31</sup>Now the firstborn said, “…there is no man on the earth to come in to us… <sup>32</sup>Come, let us make our father drink wine, and we will lie with him that we may preserve the lineage of our father”…<sup>36</sup>Both the daughters of Lot were with child by their father. <sup>37</sup>The firstborn bore a son…he is the father of the Moabites… <sup>38</sup>And the younger…bore a son…he is the father of the people of Ammon… (Gen. 19:30-38) 
 
 H. The Hagrites (83:6): The Hagrites were probably the descendants of Hagar by a second husband. Hagar was Ishmael’s mother—she conceived him with Abraham (Gen. 25:12). They dwelt east of the Jordan River in the vicinity of the Euphrates as far as the Persian Gulf (1 Chr. 5:10, 19-20).  
 
@@ -136,19 +136,19 @@ A. Asaph’s prayer in 83:9-18 applied to the days of Jehoshaphat, but it is als
 
 B. Asaph prayed that God would intervene to deliver Israel, as He did in the past during the time of the judges (83:9-12). He mingled two battles in asking God to attack the confederacy similarly to the Midianites by Gideon (Judg. 6-8). But in the middle of his sentence in 83:9, Asaph mentions another victory, one over Sisera and Jabin (Judg. 4-5) under the leadership of Deborah and Barak. He highlighted two miraculous victories “against all odds” that resulted from God’s power. 
 
->9Deal with them as with Midian [destroyed under Gideon], as with Sisera [Canaanite general], as with Jabin [Canaanite king] at the Brook Kishon, 10who perished at En Dor [under Deborah], who became as refuse [manure] on the earth. 11Make their nobles like Oreb and like Zeeb [Midianite generals], yes, all their princes like Zebah and Zalmunna [Midianite kings]. 12Who said, “Let us take for ourselves the pastures of God [the land of Israel] for a possession.” (Ps. 83:9-12) 
+><sup>9</sup>Deal with them as with Midian [destroyed under Gideon], as with Sisera [Canaanite general], as with Jabin [Canaanite king] at the Brook Kishon, <sup>10</sup>who perished at En Dor [under Deborah], who became as refuse [manure] on the earth. <sup>11</sup>Make their nobles like Oreb and like Zeeb [Midianite generals], yes, all their princes like Zebah and Zalmunna [Midianite kings]. <sup>12</sup>Who said, “Let us take for ourselves the pastures of God [the land of Israel] for a possession.” (Ps. 83:9-12) 
 
 C. Deal with them as with Midian: The Midianites were defeated by Gideon (Judg. 7:19-25; 8:1-12) who executed the Midianites generals Oreb and Zeeb who served under kings Zebah and Zalmuna (Judg. 6-8). Gideon’s army of 32,000 men was reduced by God to a small army of 300 dedicated men. Gideon’s victory over the Midianites was one of Israel’s most glorious military victories.
 
 D. As with Sisera, as with Jabin: He inserted a victory that occurred a generation before Gideon when Deborah and Barak defeated Sisera, a military commander under Jabin, a Canaanite king (Judg. 4-5). Deborah and Barak defeated a Canaanite coalition at the brook Kishon by a town named En Dor. The people had been sold into the hand of Jabin, king of Canaan who had 900 chariots of iron and seemed like an invincible foe. The waters of Kishon swept away Sisera’s and King Jabin’s army by a sudden torrent. The Kishon brook carried away the corpses of the slain army (Judg. 5:21).
 
->20They fought from the heavens [storm]…against Sisera. 21The torrent of Kishon swept them away, that ancient torrent, the torrent of Kishon. (Judg. 5:20-21) 
+><sup>20</sup>They fought from the heavens [storm]…against Sisera. <sup>21</sup>The torrent of Kishon swept them away, that ancient torrent, the torrent of Kishon. (Judg. 5:20-21) 
 
 E. Make them like Oreb and Zeeb and Zebah and Zalmunna (83:11): Asaph’s prayer in 83:11 was to make the nobles of the enemies in his day like Oreb and Zeeb, two of the main Midianite military commanders (Judg. 7:25) and to make all their princes as Zebah and Zalmunna, the two Midianite kings (Judg. 8:5-6, 12, 18) who were captured and executed by Gideon (Judg. 8:10-21).
 
 F. The Midianites were determined to take possession of the land of Israel (83:12). They planned to take away God’s pastureland throughout the land of Israel by killing or enslaving God’s people. God’s end-time judgment on the nations is related to them dividing up the land of Israel (Joel 3:2).
 
->12Who said, “Let us take for ourselves the pastures of God [the land of Israel] for a possession.” (Ps. 83:12) 
+><sup>12</sup>Who said, “Let us take for ourselves the pastures of God [the land of Israel] for a possession.” (Ps. 83:12) 
 
 G. The end-time application of the prayer in 83:9 is for God to do to the Antichrist’s armies what He did to the Midianites under Gideon and the Canaanites under Deborah—utterly destroy them by the manifestation of His supernatural power (Ezek. 38-39). In the end times, Israel’s hopes will be strengthened by recalling Gideon’s victory against the Midianites (Isa. 9:4, 10:26; Hab. 3:7). 
 
@@ -156,7 +156,7 @@ G. The end-time application of the prayer in 83:9 is for God to do to the Antich
 
 A. He prayed that God would destroy Israel’s enemies as He destroyed the Midianites (83:13-15). 
 
->13O my God, make them like the whirling dust…14As the fire burns the woods, and as the flame sets the mountains on fire, 15So pursue them with Your tempest, and…Your storm. (Ps. 83:13-15) 
+><sup>13</sup>O my God, make them like the whirling dust…<sup>14</sup>As the fire burns the woods, and as the flame sets the mountains on fire, <sup>15</sup>So pursue them with Your tempest, and…Your storm. (Ps. 83:13-15) 
 
 B. The vivid images are violent—for God to come against His enemies like a mighty wind making them like whirling dust; as a fire to make them like a dry forest set ablaze; and as a hurricane. 
 
@@ -164,14 +164,14 @@ B. The vivid images are violent—for God to come against His enemies like a mig
 
 A. Asaph prayed that Israel’s enemies be defeated, motivated by concern for their salvation and God’s reputation (83:16-18). God’s judgments are punitive and redemptive—they punish the wicked who refuse to repent (83:17) and are redemptive for those who humble themselves and seek Him (83:16b, 18a). 
 
->16Fill their faces with shame, that they may seek Your name, O Lord. 17Let them be confounded and dismayed forever; yes, let them…perish, 18that they may know that You… (Ps. 83:16-18) 
+><sup>16</sup>Fill their faces with shame, that they may seek Your name, O Lord. <sup>17</sup>Let them be confounded and dismayed forever; yes, let them…perish, <sup>18</sup>that they may know that You… (Ps. 83:16-18) 
 
 B. Fill their faces with shame: The wicked will be ashamed of their devastating military defeats to a small Israeli army (Zech. 12:6-8)—they can turn to God and humbly ask for mercy unto salvation.
 
 C. That they may seek Your name: Many in the nations will seek God when they witness His power. Ezekiel prophesies God’s judgments will lead to nations knowing that He is God (Ezek. 39:7, 22).
 
->9The Lord is…not willing that any should perish but that all should come to repentance. (2 Pet. 3:9) 
+><sup>9</sup>The Lord is…not willing that any should perish but that all should come to repentance. (2 Pet. 3:9) 
 
->7The nations shall know that I am the Lord…21I will set My glory among the nations; all the nations shall see My judgment…22Israel shall know I am the Lord…” (Ezek. 39:7, 21-22) 
+><sup>7</sup>The nations shall know that I am the Lord…<sup>21</sup>I will set My glory among the nations; all the nations shall see My judgment…<sup>22</sup>Israel shall know I am the Lord…” (Ezek. 39:7, 21-22) 
 
 D. Let them perish: Those who remain obstinate and refuse His mercy will be “confounded” forever. 

@@ -19,9 +19,9 @@ D. Outline of Psalm 96
 
 A. The exhortation to sing a “new song” is mentioned 9 times in the Scriptures (Ps. 33:3; 40:3; 96:1; 98:1; 144:9; 149:1; Isa. 42:10; Rev. 5:9; 14:3). The idea of a “new song” does not refer mostly to a song with new lyrics but to a new season and new Day in the kingdom—especially the Day of the Lord when Jesus returns to establish His millennial reign. It is a new chapter in salvation history.
 
->1Oh, sing to the LORD a new song! Sing to the LORD, all the earth. (Ps. 96:1)
+><sup>1</sup>Oh, sing to the LORD a new song! Sing to the LORD, all the earth. (Ps. 96:1)
 
->1Oh, sing to the LORD a new song! For He has done marvelous things… (Ps. 98:1)
+><sup>1</sup>Oh, sing to the LORD a new song! For He has done marvelous things… (Ps. 98:1)
 
 B. Every time the new song is mentioned in Scripture, it is in context to the end times with the exception of Psalm 40:3 which prophetically portrays Jesus’ death as quoted in Hebrews 10:5-10 (its counterpart is in Rev. 5:9-12).
 
@@ -35,7 +35,7 @@ E. “Let me make the songs of a nation, and I care not who makes its laws”—
 
 A. Sing a new song about new blessings as God’s unprecedented wonders are proclaimed to nations:
 
->1Oh, sing to the LORD a new song! Sing to the LORD, all the earth.
+><sup>1</sup>Oh, sing to the LORD a new song! Sing to the LORD, all the earth.
 2Sing to the LORD, bless His name; proclaim the good news of His salvation from day to day. 3Declare His glory among the nations, His wonders among all peoples. (Ps. 96:1-3)
 
 B. Sing to the Lord: Singing engages hearts, unifies minds, and beautifies God’s family. Singing not only gets the message out, but it energizes, unifies, and enlightens the Lord’s singing community.
@@ -50,25 +50,25 @@ F. Declare His glory: Declare the glory of Jesus’ person as their chief treasu
 
 G. Declare His wonders: The wonders of Jesus and His wonderous miracles of history and those that are prophesied to occur in Revelation 6-22. In the end times, Jesus will do wonders that parallel what He did in Egypt, causing many to see, bow low, and receive mercy (Mic. 7:15-18).
 
->15“As in the days when you came out of the land of Egypt, I will show them wonders.” 16The nations shall see and be ashamed of all their [military] might… 17They shall be afraid of the Lord… 18Who is a God like You?…because He delights in mercy. (Mic. 7:15-18)
+><sup>15</sup>“As in the days when you came out of the land of Egypt, I will show them wonders.” <sup>16</sup>The nations shall see and be ashamed of all their [military] might… <sup>17</sup>They shall be afraid of the Lord… <sup>18</sup>Who is a God like You?…because He delights in mercy. (Mic. 7:15-18)
 
 ## IV. THE REASON ALL NATIONS WILL PRAISE THE KING (PS. 96:4-6)
 
 A. We praise the Lord extravagantly because He is so great. The psalmist highlights three motives for singing—the fear of God (96:4); His power as creator (96:5); and the honor and majesty that He possesses in His court (96:6) where He is obeyed by the most honorable beings—angels and saints.
 
->4For the LORD is great and greatly to be praised; He is to be feared above all gods. 5For all the gods of the peoples are idols, but the LORD made the heavens. 6Honor and majesty are before Him; strength and beauty are in His sanctuary. (Ps. 96:4-6)
+><sup>4</sup>For the LORD is great and greatly to be praised; He is to be feared above all gods. <sup>5</sup>For all the gods of the peoples are idols, but the LORD made the heavens. <sup>6</sup>Honor and majesty are before Him; strength and beauty are in His sanctuary. (Ps. 96:4-6)
 
 B. The declaration that “the Lord is great and greatly to be praised” is emphasized four times in the scriptures (1 Chr. 16:25; Ps. 48:1; 96:4; 145:3). He is great in love, power, wisdom, and more.
 
 C. All the gods are idols: In the end times, many will worship demons as they bow before idols.
 
->20The rest…did not repent of the works of their hands, that they should not worship demons, and idols of gold, silver, brass, stone, and wood… (Rev. 9:20)
+><sup>20</sup>The rest…did not repent of the works of their hands, that they should not worship demons, and idols of gold, silver, brass, stone, and wood… (Rev. 9:20)
 
 ## V. WORSHIP THE KING IN THE BEAUTY OF HOLINESS (PS. 96:7-9)
 
 A. Give to the Lord glory and strength; that is to say, recognize His glory and power.
 
->7…O families of the peoples, give to the LORD glory and strength... 8the glory due His name… 9Oh, worship the LORD in the beauty of holiness! Tremble before Him, all the earth. (Ps. 96:7-9)
+><sup>7</sup>…O families of the peoples, give to the LORD glory and strength... <sup>8</sup>the glory due His name… <sup>9</sup>Oh, worship the LORD in the beauty of holiness! Tremble before Him, all the earth. (Ps. 96:7-9)
 
 B. Due His name: How great the debt the human race owes Him! Those nearest Him worship 24/7.
 
@@ -80,7 +80,7 @@ D. Tremble before Him: All the nations will one day be filled with profound awe 
 
 A. The psalmist exhorted all creation to praise God and to rejoice and be glad because of His reign.
 
->10Say among the nations, “The LORD reigns; the world also is firmly established, it shall not be moved; He shall judge the peoples righteously.” 11Let the heavens rejoice, and let the earth be glad; let the sea roar, and all its fullness; 12let the field be joyful, and all that is in it. Then all the trees of the woods will rejoice before the LORD. 13For He is coming, for He is coming to judge the earth. He shall judge the world with righteousness, And the peoples with His truth. (Ps. 96:10-13)
+><sup>10</sup>Say among the nations, “The LORD reigns; the world also is firmly established, it shall not be moved; He shall judge the peoples righteously.” <sup>11</sup>Let the heavens rejoice, and let the earth be glad; let the sea roar, and all its fullness; <sup>12</sup>let the field be joyful, and all that is in it. Then all the trees of the woods will rejoice before the LORD. <sup>13</sup>For He is coming, for He is coming to judge the earth. He shall judge the world with righteousness, And the peoples with His truth. (Ps. 96:10-13)
 
 B. The world is established so it cannot be moved: After Jesus returns, the world will be fully secure. The world speaks of the physical creation and the social structures of the nations. This anticipates the establishment of Jesus’ millennial reign as God shakes the nations just before Jesus returns.
 
@@ -92,11 +92,11 @@ E. Let the sea roar and the field be joyful: There will be no longer be tragedie
 
 F. He is coming to judge the earth: Jesus came the first time to save that which was lost. He comes the second time to judge, to remove all that hinders love. His judgment involves much more than punishing those who persist in rebelling; it includes ruling the earth in righteousness (96:13; 98:9).
 
->13For He is coming…He shall judge the world with righteousness, and the peoples with His truth. (Ps. 96:13)
+><sup>13</sup>For He is coming…He shall judge the world with righteousness, and the peoples with His truth. (Ps. 96:13)
 
 G. Paul spoke of this most joyful Day in history when Jesus, our Bridegroom King, is in position on earth to judge—to give leadership over all the governments, courts, and legal systems on earth.
 
->30…God…commands all men everywhere to repent, 31because He has appointed a day on which He will judge the world in righteousness by the Man whom He has ordained. He has given assurance of this to all by raising Him from the dead.” (Act 17:30-31)
+><sup>30</sup>…God…commands all men everywhere to repent, <sup>31</sup>because He has appointed a day on which He will judge the world in righteousness by the Man whom He has ordained. He has given assurance of this to all by raising Him from the dead.” (Act 17:30-31)
 
 ## VII. INTRODUCTION TO PSALM 97
 
@@ -111,11 +111,11 @@ B. Outline of Psalm 97
 
 A. Jesus returns to reign over all nations, which causes the whole earth to rejoice (96:1-3).
 
->1The Lord reigns; let the earth rejoice… 2Clouds and darkness surround Him; righteousness and justice are the foundation of His throne. 3A fire goes before Him, and burns up His enemies… (Ps. 97:1-3)
+><sup>1</sup>The Lord reigns; let the earth rejoice… <sup>2</sup>Clouds and darkness surround Him; righteousness and justice are the foundation of His throne. <sup>3</sup>A fire goes before Him, and burns up His enemies… (Ps. 97:1-3)
 
 B. The Lord reigns: All power in heaven and in earth has already been given to Jesus. This anticipates the time that the Father sets Jesus as King on earthly Mt. Zion in Jerusalem (Ps. 2:6)
 
->6“Yet I [the Father] have set My King on My holy hill of Zion”… 8I will give You [Jesus] the nations for Your inheritance… 9You shall break them with a rod of iron…” (Ps. 2:6-9)
+><sup>6</sup>“Yet I [the Father] have set My King on My holy hill of Zion”… <sup>8</sup>I will give You [Jesus] the nations for Your inheritance… <sup>9</sup>You shall break them with a rod of iron…” (Ps. 2:6-9)
 
 C. Let the earth rejoice: Jesus will restore paradise and God’s glory to the earth. He will rule all the nations with His saints, causing them to rejoice and be glad (Dan. 7:22, 27; Rev. 20:4-6).
 
@@ -125,7 +125,7 @@ D. Clouds and darkness surround Him: Clouds and darkness are involved as God gov
 
 2. Sometimes we have great difficulty in understanding God’s wisdom—it is hidden behind the clouds—leaving us unable to reconcile some of what He does. There is a difference between what God seems to be, and what God is. Men do not naturally have a right perspective of God.
 
->8Look, I go forward, but He is not there, and backward, but I cannot perceive Him; 9When He works on the left hand, I cannot behold Him; when He turns to the right hand, I cannot see Him. 10But…when He has tested me, I shall come forth as gold. (Job 23:8-10)
+><sup>8</sup>Look, I go forward, but He is not there, and backward, but I cannot perceive Him; <sup>9</sup>When He works on the left hand, I cannot behold Him; when He turns to the right hand, I cannot see Him. <sup>10</sup>But…when He has tested me, I shall come forth as gold. (Job 23:8-10)
 
 3. Clouds were around Him at Sinai so that His excessive glory would not consume Israel. Every revelation of God requires a veiling of His infinite splendor before finite beings.
 
@@ -135,19 +135,19 @@ F. A fire burns up His enemies: God demonstrates His justice by confronting and 
 
 G. When Jesus judges His enemies in the Tribulation, His activities are compared to a fierce storm with lightnings and thunder, accompanied by fire from heaven and great earthquakes (97:3-6).
 
->3A fire goes before Him, and burns up His enemies round about. 4His lightnings light the world; the earth sees and trembles [thunder]. 5The mountains melt like wax [earthquake] at the presence of the Lord… 6The heavens [skies] declare His righteousness, and all the peoples see His glory. (Ps. 97:3-6)
+><sup>3</sup>A fire goes before Him, and burns up His enemies round about. <sup>4</sup>His lightnings light the world; the earth sees and trembles [thunder]. <sup>5</sup>The mountains melt like wax [earthquake] at the presence of the Lord… <sup>6</sup>The heavens [skies] declare His righteousness, and all the peoples see His glory. (Ps. 97:3-6)
 
 H. Mountains melt like wax: Mountains seem to melt away when mighty earthquakes destroy them.
 
 I. The heavens declare His righteousness: The Lord will use fire, storms, lightning, earthquakes, and volcanoes to express His end-time judgments. Terrifying signs in the sky will herald His coming.
 
->25“And there will be signs in the sun, in the moon, and in the stars; and on the earth distress of nations, with perplexity, the sea and the waves roaring; 26men’s hearts failing them from fear… of those things…for the powers of the heavens will be shaken.” (Lk. 21:25-26)
+><sup>25</sup>“And there will be signs in the sun, in the moon, and in the stars; and on the earth distress of nations, with perplexity, the sea and the waves roaring; <sup>26</sup>men’s hearts failing them from fear… of those things…for the powers of the heavens will be shaken.” (Lk. 21:25-26)
 
 ## IX. THE IMPACT OF THE LORD’S RETURN ON NATIONS (PS. 97:7-9)
 
 A. There will be a mixture of responses— God’s people will rejoice, while others will be ashamed.
 
->7Let all be put to shame who serve carved images, who boast of idols. Worship Him, all you gods. 8Zion hears and is glad, and the daughters of Judah rejoice because of Your judgments, O Lord. 9For You, Lord, are most high above all the earth; You are exalted far above all gods. (Ps. 97:7-9)
+><sup>7</sup>Let all be put to shame who serve carved images, who boast of idols. Worship Him, all you gods. <sup>8</sup>Zion hears and is glad, and the daughters of Judah rejoice because of Your judgments, O Lord. <sup>9</sup>For You, Lord, are most high above all the earth; You are exalted far above all gods. (Ps. 97:7-9)
 
 B. Zion is glad: Jerusalem will experience a great deliverance at that time and will rejoice greatly.
 
@@ -157,7 +157,7 @@ C. The daughters of Judah rejoice: This speaks of the other cities of Judaea bes
 
 A. He exhorts them to love the Lord with gladness; that is, to embrace “happy holiness” (97:10-12).
 
->10You who love the Lord, hate evil! He preserves the souls of His saints; He delivers them out of the hand of the wicked. 11Light is sown for [shines on] the righteous, and gladness for the upright… 12Rejoice in the Lord…and give thanks at the remembrance of His holy name. (Ps. 97:10-12)
+><sup>10</sup>You who love the Lord, hate evil! He preserves the souls of His saints; He delivers them out of the hand of the wicked. <sup>11</sup>Light is sown for [shines on] the righteous, and gladness for the upright… <sup>12</sup>Rejoice in the Lord…and give thanks at the remembrance of His holy name. (Ps. 97:10-12)
 
 B. You who love the Lord: We set our heart to love what God loves and hate what He hates. The more that people love God, the more they will hate sin. The context here includes evil systems.
 
@@ -165,7 +165,7 @@ C. He delivers them: Demonically energized false systems will be destroyed by Go
 
 D. He preserves the souls of His saints: The Lord may allow the bodies of His persecuted saints to be harmed, but He promises to protect their hearts by empowering them to be faithful to Him. The main goal of the end-time church is not to avoiding dying but to live faithfully before Him.
 
->16...and they will put some of you to death. 17And you will be hated by all for My name’s sake. 18But not a hair of your head shall be lost. 19By your patience possess your souls. (Lk. 21:16-19)
+><sup>16</sup>...and they will put some of you to death. <sup>17</sup>And you will be hated by all for My name’s sake. <sup>18</sup>But not a hair of your head shall be lost. <sup>19</sup>By your patience possess your souls. (Lk. 21:16-19)
 
 ## XI. INTRODUCTION TO PSALM 98
 
@@ -180,7 +180,7 @@ B. Outline of Psalm 98
 
 A. He anticipates the Lord doing unprecedented miracles and winning a great victory over their enemy.
 
->1Oh, sing to the LORD a new song! For He has done marvelous things; His right hand and His holy arm have gained Him the victory [over the Antichrist]. 2The LORD has made known His salvation…in the sight of the nations. 3He has remembered His mercy and His faithfulness to the house of Israel; all the ends of the earth have seen the salvation of our God. (Ps. 98:1-3)
+><sup>1</sup>Oh, sing to the LORD a new song! For He has done marvelous things; His right hand and His holy arm have gained Him the victory [over the Antichrist]. <sup>2</sup>The LORD has made known His salvation…in the sight of the nations. <sup>3</sup>He has remembered His mercy and His faithfulness to the house of Israel; all the ends of the earth have seen the salvation of our God. (Ps. 98:1-3)
 
 B. New song: This is the second time in this series of psalms that the new song is mentioned (96:1).
 
@@ -196,13 +196,13 @@ F. He remembered His mercy to Israel: Jesus will deliver Jerusalem from the sieg
 
 A. When Jesus returns to judge the earth (98:9), everyone is to praise Him enthusiastically (98:4-6). This describes the time when the news fills the earth that King Jesus has ascended His throne of glory. This scene anticipates the response of all nations to the beginning of Jesus’ millennial reign.
 
->4Shout joyfully to the LORD, all the earth; break forth in song, rejoice, and sing praises. 5Sing to the LORD with the harp… 6with trumpets…before the LORD, the King… 7Let the sea roar, and all its fullness, the world and those who dwell in it; 8let the rivers clap their hands…before the LORD, 9for He is coming to judge the earth. With righteousness He shall judge the world… (Ps. 98:4-9)
+><sup>4</sup>Shout joyfully to the LORD, all the earth; break forth in song, rejoice, and sing praises. <sup>5</sup>Sing to the LORD with the harp… <sup>6</sup>with trumpets…before the LORD, the King… <sup>7</sup>Let the sea roar, and all its fullness, the world and those who dwell in it; <sup>8</sup>let the rivers clap their hands…before the LORD, <sup>9</sup>for He is coming to judge the earth. With righteousness He shall judge the world… (Ps. 98:4-9)
 
 B. The glorious results of His end-time judgments (98:7-9) include the sea bringing forth an abundant blessing and wealth as will the land agriculture—becoming like the garden of Eden.
 
 C. He is coming: Paul spoke of the Day when Jesus returns to judge with righteousness (96:13; 98:9).
 
->31…He has appointed a day on which He will judge the world in righteousness by the Man whom He has ordained. He has given assurance…all by raising Him from the dead.” (Acts 17:31)
+><sup>31</sup>…He has appointed a day on which He will judge the world in righteousness by the Man whom He has ordained. He has given assurance…all by raising Him from the dead.” (Acts 17:31)
 
 ## XIV. INTRODUCTION TO PSALM 99
 
@@ -216,12 +216,12 @@ C. Some refer to Psalm 99 as “the holy psalm” because “He is holy” is in
 
 A. Isaiah saw the seraphim cover their eyes as they proclaimed Jesus’ holiness (Jn. 12:41).
 
->1I saw the Lord sitting on a throne…2Above it stood seraphim; each one had six wings: with two he covered his face… 3One cried to another… “Holy, holy, holy is the LORD of hosts; the whole earth is full of His glory”… 5I said: “Woe is me…for my eyes have seen the King…” (Isa. 6:1-5)
+><sup>1</sup>I saw the Lord sitting on a throne…<sup>2</sup>Above it stood seraphim; each one had six wings: with two he covered his face… <sup>3</sup>One cried to another… “Holy, holy, holy is the LORD of hosts; the whole earth is full of His glory”… <sup>5</sup>I said: “Woe is me…for my eyes have seen the King…” (Isa. 6:1-5)
 
 B. John saw the four living creatures (seraphim) who never crease to cry,
 “Holy, holy, holy.”
 
->8The four living creatures…saying: “Holy, holy, holy, Lord God Almighty…” (Rev. 4:8)
+><sup>8</sup>The four living creatures…saying: “Holy, holy, holy, Lord God Almighty…” (Rev. 4:8)
 
 C. The word, holy, means to be separate from. There are two applications to God’s holiness—to be separate from sin (to be pure) and to be separate from everything created (to be transcendent). The primary meaning of God’s holiness is transcendence (His relationship to the created order). He is wholly other than. Thus, He is infinitely superior to every created thing that has ever existed. The seraphim are not crying out, “Purity, purity, purity,” as if they are magnifying His attribute of purity above other attributes (love, wisdom, power). They are referring to Jesus’ transcendence.
 
@@ -229,7 +229,7 @@ C. The word, holy, means to be separate from. There are two applications to God�
 
 A. Because the Lord is so great, all will tremble in reverential fear in His presence.
 
->1The LORD reigns; let the peoples tremble! He dwells between the cherubim; let the earth be moved! 2The LORD is great in Zion, and He is high above all the peoples. 3Let them praise Your great and awesome name—He is holy. 4The King’s strength also loves justice; You have established equity; You have executed justice and righteousness in Jacob. 5Exalt the LORD our God, and worship at His footstool—He is holy. (Ps. 99:1-5)
+><sup>1</sup>The LORD reigns; let the peoples tremble! He dwells between the cherubim; let the earth be moved! <sup>2</sup>The LORD is great in Zion, and He is high above all the peoples. <sup>3</sup>Let them praise Your great and awesome name—He is holy. <sup>4</sup>The King’s strength also loves justice; You have established equity; You have executed justice and righteousness in Jacob. <sup>5</sup>Exalt the LORD our God, and worship at His footstool—He is holy. (Ps. 99:1-5)
 
 B. The Lord reigns: The overthrow of evil and the establishing of Jesus’ kingdom is sure to come.
 
@@ -241,11 +241,11 @@ E. Between the cherubim: Jesus’ throne is “on the cherubim” who are under 
 
 F. The LORD is great in Zion: Jesus’ greatness will be seen by all as He sit on His throne of glory in Jerusalem (Mt. 25:31-32). All nations will acknowledge Jesus’ reign and His world capital.
 
->31“When the Son of Man comes in His glory, and all the holy angels with Him, then He will sit on the throne of His glory. 32All the nations will be gathered before Him…” (Mt. 25:31-32)
+><sup>31</sup>“When the Son of Man comes in His glory, and all the holy angels with Him, then He will sit on the throne of His glory. <sup>32</sup>All the nations will be gathered before Him…” (Mt. 25:31-32)
 
 G. Praise Your awesome name: After seeing Jesus’ power and hearing the report of what He did in delivering Jerusalem, all in the nations will praise His awesome name. Isaiah prophesied the Lord would send eyewitness survivors of the battle at Jerusalem to the nations to proclaim His glory.
 
->19“…those among them who escape [survivors of the Tribulation] I will send to the nations… who have not heard My fame nor seen My glory [His works in destroying the Antichrist]. And they shall declare My glory among the Gentiles.” (Isa. 66:19)
+><sup>19</sup>“…those among them who escape [survivors of the Tribulation] I will send to the nations… who have not heard My fame nor seen My glory [His works in destroying the Antichrist]. And they shall declare My glory among the Gentiles.” (Isa. 66:19)
 
 H. The King’s strength loves justice: Jesus will be worshiped because His love of justice, equity, and righteousness will be seen by all by His ways—including how He sets up and runs His government.
 
@@ -255,7 +255,7 @@ I. Worship at His footstool: God’s “footstool” in the Old Testament was th
 
 A. Even though the Israelites sinned, the Lord showed His delight in mercy by answering the prayers of their intercessors—Moses, Aaron, and Samuel. He expresses holiness (99:3, 5, 9) with mercy.
 
->6Moses and Aaron were among His priests, and Samuel was among those who called upon His name [as intercessors]… and He answered them. 7He spoke to them in the cloudy pillar; they kept His testimonies… 8You answered them, O LORD…You were to them God-Who-Forgives, though You took vengeance on their deeds. 9Exalt the LORD…for the LORD our God is holy. (Ps. 99:6-9)
+><sup>6</sup>Moses and Aaron were among His priests, and Samuel was among those who called upon His name [as intercessors]… and He answered them. <sup>7</sup>He spoke to them in the cloudy pillar; they kept His testimonies… <sup>8</sup>You answered them, O LORD…You were to them God-Who-Forgives, though You took vengeance on their deeds. <sup>9</sup>Exalt the LORD…for the LORD our God is holy. (Ps. 99:6-9)
 
 B. Called upon His name: These three men stood in the gap as intercessors in times of Israel’s national judgments. Jeremiah mentioned Moses and Samuel as powerful intercessors (Jer. 15:1).
 

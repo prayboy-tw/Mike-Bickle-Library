@@ -22,7 +22,7 @@ F. Outline of Psalm 110
 
 A. David highlights Jesus’ ministry through the Church after His heavenly coronation (110:1-3)
 
->1The LORD [Yahweh, the Father] said to my Lord [Adonai, Jesus], “Sit at My right hand, till I make Your [Jesus’] enemies Your footstool.” 2The LORD [the Father] shall send the rod of Your [Jesus’] strength out of Zion. Rule in the midst of Your enemies! 3Your people shall be volunteers in the day of Your power; in the beauties of holiness, from the womb of the morning, You have the dew of Your youth. (Ps. 110:1-3)
+><sup>1</sup>The LORD [Yahweh, the Father] said to my Lord [Adonai, Jesus], “Sit at My right hand, till I make Your [Jesus’] enemies Your footstool.” <sup>2</sup>The LORD [the Father] shall send the rod of Your [Jesus’] strength out of Zion. Rule in the midst of Your enemies! <sup>3</sup>Your people shall be volunteers in the day of Your power; in the beauties of holiness, from the womb of the morning, You have the dew of Your youth. (Ps. 110:1-3)
 
 B. The LORD said to my Lord: English translations often use “LORD” (all capital letters) for the Hebrew, “Yahweh” (Latinized, Jehovah; the English name Jehovah comes from Latin Iehovah). The word “Lord” (not all capital letters) is from the Hebrew, Adonai (supremely powerful master). David is saying that the Father (Yahweh) spoke to Jesus whom David referred to as his “Lord” (Adonai/master and all powerful One). David referred to his future descendant Jesus as his master.
 
@@ -34,11 +34,11 @@ D. Till I make Your enemies Your footstool: To make Jesus’ enemies a stool for
 
 2. “Some” of His enemies are defeated through His Church in this age (110:2). Jesus will return to reign throughout the Millennium until “all” His enemies are subdued (110:5; 1 Cor. 15:24).
 
->23But each one in his own order [are resurrected]...those who are Christ’s at His coming. 24Then comes the end, when He delivers the kingdom to God...when He puts an end to all rule...[at the end of the Millennium]. 25For He must reign till He has put all enemies under His feet. 26The last enemy that will be destroyed is death... (1 Cor. 15:23-28)
+><sup>23</sup>But each one in his own order [are resurrected]...those who are Christ’s at His coming. <sup>24</sup>Then comes the end, when He delivers the kingdom to God...when He puts an end to all rule...[at the end of the Millennium]. <sup>25</sup>For He must reign till He has put all enemies under His feet. <sup>26</sup>The last enemy that will be destroyed is death... (1 Cor. 15:23-28)
 
 E. Jesus asked the Pharisees how the Messiah could be David’s grandson and still be his Lord (Mt. 22:41-46). The answer is that He must be both human and divine.
 
->43He said to them, “How then does David in the Spirit call Him ‘Lord,’ saying: 44‘The LORD said to my Lord, “Sit at My right hand, till I make Your enemies Your footstool?”’ 45If David then calls Him ‘Lord,’ how is He his Son?” (Mt. 22:43-45)
+><sup>43</sup>He said to them, “How then does David in the Spirit call Him ‘Lord,’ saying: <sup>44</sup>‘The LORD said to my Lord, “Sit at My right hand, till I make Your enemies Your footstool?”’ <sup>45</sup>If David then calls Him ‘Lord,’ how is He his Son?” (Mt. 22:43-45)
 
 F. The LORD shall send the rod of Your strength out of Zion: David addressed Jesus prophetically (110:2-4). Between Jesus’ first and second comings, God releases His strength through the Church.
 
@@ -54,19 +54,19 @@ H. Rule in the midst of Your enemies: Jesus releases His rod against His enemies
 
 4. Fourth, He releases the rod of His strength by the Spirit operating in and through His praying people, resulting in a vast army of those who freely volunteer to love and obey Jesus.
 
->33...being exalted to the right hand of God, and having received from the Father the promise of the Holy Spirit, He poured out this which you now see... (Acts 2:33)
+><sup>33</sup>...being exalted to the right hand of God, and having received from the Father the promise of the Holy Spirit, He poured out this which you now see... (Acts 2:33)
 
 ## III. IN THE DAY OF YOUR POWER (PS. 110:3)
 
 A. David describes what kind of army through which Jesus releases His strength. Psalm 110:3 has been a challenge to commentators. Almost every word in 110:3 is translated differently in various Bible translations, but the overall picture is clear: that many volunteers freely serve Jesus in a holy war.
 
->3Your people shall be volunteers in the day of Your power; in the beauties of holiness, from the womb of the morning; You have the dew of Your youth. (Ps. 110:3; NKJV)
+><sup>3</sup>Your people shall be volunteers in the day of Your power; in the beauties of holiness, from the womb of the morning; You have the dew of Your youth. (Ps. 110:3; NKJV)
 
->3Your people will offer themselves freely on the day of your power, in holy garments; from the womb of the morning, the dew of your youth will be yours. (Ps. 110:3; ESV)
+><sup>3</sup>Your people will offer themselves freely on the day of your power, in holy garments; from the womb of the morning, the dew of your youth will be yours. (Ps. 110:3; ESV)
 
->3Your people will volunteer freely in the day of Your power; in holy array, from the womb of the dawn, Your youth are to You as the dew. (Ps. 110:3; NAS)
+><sup>3</sup>Your people will volunteer freely in the day of Your power; in holy array, from the womb of the dawn, Your youth are to You as the dew. (Ps. 110:3; NAS)
 
->3Your troops will be willing on your day of battle. Arrayed in holy splendor, your young men will come to you like dew from the morning’s womb. (Ps. 110:3; NIV)
+><sup>3</sup>Your troops will be willing on your day of battle. Arrayed in holy splendor, your young men will come to you like dew from the morning’s womb. (Ps. 110:3; NIV)
 
 B. In the day of Your power: The “day of His power” includes the times in history when Jesus openly displays His power. This includes seasons of revival, a much greater measure of power in the leading up to the DAY of the Lord in the Tribulation, and throughout the millennial kingdom.
 
@@ -76,7 +76,7 @@ D. In the beauties of holiness: The prepositional phrase “in the beauties of h
 
 E. From the womb of the morning: This is a poetic description of the bright morning when the Messiah openly manifests His presence. David’s use of “womb” here compares the break of dawn to the birthing of a new day—the Millennium is the “dawning” of a new day in history.
 
->15...glorify the LORD in the dawning light, the name of the LORD...in the coastlands of the sea. (Isa. 24:15)
+><sup>15</sup>...glorify the LORD in the dawning light, the name of the LORD...in the coastlands of the sea. (Isa. 24:15)
 
 F. You have the dew of Your youth (110:3): The Hebrew is cryptic: “You have the dew of Your youth” or “Your youth will be as the dew.” The “dew of Your youth” is seen by some as an idiom of Jesus’ eternal vigor, but it may refer to His volunteers as an army of young people.
 
@@ -90,15 +90,15 @@ F. You have the dew of Your youth (110:3): The Hebrew is cryptic: “You have th
 
 A. The Father speaks for the second time (110:1, 4)—He declared the eternal identity of the Messiah as the Priest-King. The Father swore that Jesus will be a priest forever in the order of Melchizedek (Gen. 14:18; Heb. 5:6, 10; 6:20; 7:1-28). God will never change this—Jesus will never be replaced.
 
->4The LORD [the Father] has sworn and will not relent, “You are a priest forever according to the order of Melchizedek.” (Ps. 110:4)
+><sup>4</sup>The LORD [the Father] has sworn and will not relent, “You are a priest forever according to the order of Melchizedek.” (Ps. 110:4)
 
 B. The Father speaks in a strong and final way concerning the nature of how Jesus will rule—with a priestly spirit and commission in context to prayer, teaching (discipling, mentoring), and a holy leadership style that flows from tenderness, mercy, and a sympathetic heart (Heb. 4:15).
 
->15For we do not have a High Priest who cannot sympathize with our weaknesses... (Heb. 4:15)
+><sup>15</sup>For we do not have a High Priest who cannot sympathize with our weaknesses... (Heb. 4:15)
 
 C. You are a priest forever: Zechariah prophesied that the Messiah would be a King ruling as a Priest. His power will be released in the context of prayer, teaching, mercy, etc.
 
->13...[Jesus] shall sit and rule on His throne; so He shall be a priest on His throne... (Zech. 6:13)
+><sup>13</sup>...[Jesus] shall sit and rule on His throne; so He shall be a priest on His throne... (Zech. 6:13)
 
 D. According to the order of Melchizedek: Priests in the order of Aaron were forbidden to be kings. Christ presides over an eternal priesthood. Our eternal identity is deeply connected with this aspect of His eternal identity because we are co-heirs with him, seated in heavenly places with Him.
 
@@ -106,11 +106,11 @@ D. According to the order of Melchizedek: Priests in the order of Aaron were for
 
 A. David addressed the Father confirming that Jesus was reigning at His right hand in His priestly ministry and then prophesied what Jesus will do when He returns to reign on the earth—He will destroy the kings who oppose Him (110:5-7). Jesus will return in context to fierce military battle.
 
->5The Lord [Jesus] is at Your right hand; He shall execute kings in the day of His wrath. 6He shall judge among the nations, He shall fill the places with dead bodies, He shall execute the heads of many countries. 7He shall drink of the brook by the wayside; therefore He shall lift up the head. (Ps. 110:5-7)
+><sup>5</sup>The Lord [Jesus] is at Your right hand; He shall execute kings in the day of His wrath. <sup>6</sup>He shall judge among the nations, He shall fill the places with dead bodies, He shall execute the heads of many countries. <sup>7</sup>He shall drink of the brook by the wayside; therefore He shall lift up the head. (Ps. 110:5-7)
 
 B. He shall execute kings in the day of His wrath: Jesus will execute the kings serving the Antichrist (Ps. 68:21; Rev. 19:17-21) as He establishes His new governments in the nations (Mt. 25:31-32).
 
->19I saw the beast [the Antichrist], the kings of the earth, and their armies, gathered together to make war against Him...and against His army. 20Then the beast [the Antichrist] was captured, and with him the false prophet...21The rest were killed with the sword...from the mouth of Him... (Rev. 19:19-21)
+><sup>19</sup>I saw the beast [the Antichrist], the kings of the earth, and their armies, gathered together to make war against Him...and against His army. <sup>20</sup>Then the beast [the Antichrist] was captured, and with him the false prophet...<sup>21</sup>The rest were killed with the sword...from the mouth of Him... (Rev. 19:19-21)
 
 C. He shall drink of the brook by the wayside: David described Jesus as a courageous soldier in such hot pursuit of his enemy that He would be like a soldier who refused to slow down to enjoy refreshment but instead hastily drank from a brook as he passed by. This is the demeanor of Jesus attacking His enemy with great zeal. Jesus is described as a victorious conqueror pursuing His enemies vigorously in contrast to a soldier whose head falls down when exhausted or ashamed of failure. He is like a soldier with his head lifted up in triumph and strength.
 
@@ -127,7 +127,7 @@ B. In Psalm 132, the psalmist reminds the Lord and His people of a vow that Davi
 
 C. Solomon quoted 132:8-10 when dedicating the temple and preparing to move ark into it, thus fulfilling some of what David committed to (2 Chr. 6:41-42). Solomon is probably the “anointed one” in 132:10 who appealed to God’s promises to David when asking for God’s blessing on him.
 
->41“...Arise, O LORD God, to Your resting place, You and the ark of Your strength. Let Your priests, O LORD God, be clothed with salvation, and let Your saints rejoice in goodness. 42O LORD God, do not turn away the face of Your anointed [Solomon]...” (2 Chr. 6:40-42)
+><sup>41</sup>“...Arise, O LORD God, to Your resting place, You and the ark of Your strength. Let Your priests, O LORD God, be clothed with salvation, and let Your saints rejoice in goodness. <sup>42</sup>O LORD God, do not turn away the face of Your anointed [Solomon]...” (2 Chr. 6:40-42)
 
 D. Outline of Psalm 132  
 132:1-5 A prayer to remember David’s sacred vow  
@@ -142,7 +142,7 @@ E. The first half of this psalm highlights David’s extravagant dedication to p
 
 A. The request is that the Lord remember David’s vow and the covenant that He made with David.
 
->1LORD, remember David and all his afflictions; 2how he swore to the LORD and vowed to the Mighty One of Jacob: 3“Surely I will not go into the chamber of my house, or go up to the comfort of my bed; 4I will not give sleep to my eyes...5Until I find a place for the LORD, a dwelling place for the Mighty One of Jacob.” (Ps. 132:1-5)
+><sup>1</sup>LORD, remember David and all his afflictions; <sup>2</sup>how he swore to the LORD and vowed to the Mighty One of Jacob: <sup>3</sup>“Surely I will not go into the chamber of my house, or go up to the comfort of my bed; <sup>4</sup>I will not give sleep to my eyes...<sup>5</sup>Until I find a place for the LORD, a dwelling place for the Mighty One of Jacob.” (Ps. 132:1-5)
 
 B. The spirit of David’s prayer and dedication has application in this age by those seeking to see an historic visitation of the Lord’s presence resting on His people in various places—they contend for a breakthrough of revival to the fullest measure ordained by God “for their city in their generation.”
 
@@ -150,7 +150,7 @@ C. Remember David: The psalmist knew that God was moved by David’s commitment.
 
 D. All his afflictions: David’s afflictions included those resulting from his godly efforts to see a place where the Lord’s power and presence would be released in a greater way in his generation. David was persecuted for his zeal in seeking God. The spirit of his vow is elaborated on in Psalm 69:7-12. He described the afflictions that he endured from his youth related to his zeal for God’s house.
 
->7For Your sake I have borne reproach; shame has covered my face. 8I have become a stranger to my brothers, and an alien to my mother’s children; 9because zeal for Your house has eaten me up, and the reproaches of those who reproach You have fallen on me. 10When I wept and chastened my soul with fasting that became my reproach...11I became a byword to them. 12Those who sit in the gate speak against me...I am the song of the drunkards. (Ps. 69:7-12)
+><sup>7</sup>For Your sake I have borne reproach; shame has covered my face. <sup>8</sup>I have become a stranger to my brothers, and an alien to my mother’s children; <sup>9</sup>because zeal for Your house has eaten me up, and the reproaches of those who reproach You have fallen on me. <sup>10</sup>When I wept and chastened my soul with fasting that became my reproach...<sup>11</sup>I became a byword to them. <sup>12</sup>Those who sit in the gate speak against me...I am the song of the drunkards. (Ps. 69:7-12)
 
 E. He swore and vowed to the LORD: David expressed his dedication by making a vow to the Lord. David’s vow is seen in 132:3-5—it gives a picture those who will freely volunteer in Psalm 110:3.
 
@@ -166,17 +166,17 @@ H. Until I find a dwelling place for the LORD (132:5): David vowed to find a dwe
 
 1. Against all odds, David contended for something special to happen in Jerusalem in his day.
 
->8The LORD said to my [Solomon] father David, “Whereas it was in your heart to build a temple for My name, you did well in that it was in your heart.” (2 Chr. 6:8)
+><sup>8</sup>The LORD said to my [Solomon] father David, “Whereas it was in your heart to build a temple for My name, you did well in that it was in your heart.” (2 Chr. 6:8)
 
 2. David’s lifework was to establish a “dwelling place” for the Lord in his generation. He prayed for Jerusalem to be a city where God’s presence would be released in an unusual way. This required that he partner with others who were also seeking a breakthrough of God’s promises.
 
 I. A “resting place” in this context occurs when the Spirit “rests” in the midst of His people who live in agreement with Him. In the new covenant, His habitation, or resting place, is in His people (Eph. 2:22). The Spirit strives with those who resist His leadership, to convince them to obey (Gen. 6:3).
 
->3The LORD said, “My Spirit shall not strive with man forever...” (Gen. 6:3)
+><sup>3</sup>The LORD said, “My Spirit shall not strive with man forever...” (Gen. 6:3)
 
 J. We must understand what the Scriptures teach about “breakthrough” in the Spirit—it describes a twofold breakthrough. Jesus accomplished a full breakthrough in the spirit realm (2 Cor. 5:17-21), and we partner with Him for a breakthrough of the fullness of His purpose in the natural realm.
 
->17If anyone is in Christ, he is a new creation; old things have passed away...all things have become new...21that we [our spirit] might become the righteousness of God. (2 Cor. 5:17; 21)
+><sup>17</sup>If anyone is in Christ, he is a new creation; old things have passed away...all things have become new...<sup>21</sup>that we [our spirit] might become the righteousness of God. (2 Cor. 5:17; 21)
 
 K. Because we have confidence in the breakthrough that fully occurred in the Spirit because of Jesus’ death, we have confidence to contend for a Holy-Spirit breakthrough in the natural.
 
@@ -184,7 +184,7 @@ K. Because we have confidence in the breakthrough that fully occurred in the Spi
 
 A. David and his companions found the ark in Kirjath-jearim and went there to obtain it. The antecedent of “it” (132:6) is the ark (132:8). David moved the ark from Kirjath-jearim to the newly captured Jerusalem as the next stage of its dramatic journey over centuries that started on Mt. Sinai.
 
->6Behold, we heard of it in Ephrathah [near Bethlehem]; we found it in the fields of the woods [Jaar, thus Kirjath-jearim]. 7Let us go into His tabernacle; let us worship at His footstool. (Ps. 132:6-7)
+><sup>6</sup>Behold, we heard of it in Ephrathah [near Bethlehem]; we found it in the fields of the woods [Jaar, thus Kirjath-jearim]. <sup>7</sup>Let us go into His tabernacle; let us worship at His footstool. (Ps. 132:6-7)
 
 B. Ephrathah: Ephrathah is the ancient name of Bethlehem (Gen. 48:7). David grew up in Bethlehem, hearing “revival stories” of God’s power associated with the ark. It marked him in his youth.
 
@@ -196,7 +196,7 @@ D. Let us worship at His footstool: The temple and/or the ark is referred to as 
 
 A. Solomon quoted 132:8-10, when dedicating the temple and moving the ark into it (2 Chr. 6:41-42). This prayer was prayed when Israel moved the ark to battle and back to the Zion.
 
->8Arise, O LORD, to Your resting place, You and the ark of Your strength. 9Let Your priests be clothed with righteousness and let Your saints shout for joy. (Ps. 132:8-9)
+><sup>8</sup>Arise, O LORD, to Your resting place, You and the ark of Your strength. <sup>9</sup>Let Your priests be clothed with righteousness and let Your saints shout for joy. (Ps. 132:8-9)
 
 B. Arise, O LORD, to Your resting place: The prayer is that “God arise” to release the fulness of His power. Millennial Jerusalem is where this occurs in fulness (132:5, 8, 14; Isa. 11:10; 18:4-7; 63:10).
 
@@ -212,7 +212,7 @@ A. The second half of Psalm 132 reveals God’s extravagant commitments to David
 
 B. God promised David that He would raise up his descendants to sit on Israel’s throne (2 Sam. 7:12). This promise had conditions for the individual kings in David’s family line. Most of them did not faithfully obey God. However, the Lord preserved David’s dynasty—for Jesus, the son of David.
 
->11The LORD has sworn in truth to David; He will not turn from it: “I will set upon your throne the fruit of your body [ultimately Jesus]. 12If your sons will keep My covenant and My testimony which I shall teach them, their sons also shall sit upon your throne forevermore.” (Ps. 132:11-12)
+><sup>11</sup>The LORD has sworn in truth to David; He will not turn from it: “I will set upon your throne the fruit of your body [ultimately Jesus]. <sup>12</sup>If your sons will keep My covenant and My testimony which I shall teach them, their sons also shall sit upon your throne forevermore.” (Ps. 132:11-12)
 
 C. The LORD has sworn in truth to David: The most powerful force and spiritual weapon is God’s word. Nathan prophesied God’s covenant with David’s house (2 Sam. 7:11-16; cf. Ps. 89:19-37).
 
@@ -220,21 +220,21 @@ C. The LORD has sworn in truth to David: The most powerful force and spiritual w
 
 A. God promised to make Zion or Jerusalem His eternal dwelling place where He will reign forever.
 
->13For the LORD has chosen Zion; He has desired it for His dwelling place: 14“This is My resting place forever; here I will dwell, for I have desired it. 15I will abundantly bless her provision; I will satisfy her poor with bread. 16I will also clothe her priests with salvation, and her saints shall shout aloud for joy. 17There I will make the horn of David grow; I will prepare a lamp for My Anointed. 18His enemies I will clothe with shame, but upon Himself His crown shall flourish.” (Ps. 132:13-18)
+><sup>13</sup>For the LORD has chosen Zion; He has desired it for His dwelling place: <sup>14</sup>“This is My resting place forever; here I will dwell, for I have desired it. <sup>15</sup>I will abundantly bless her provision; I will satisfy her poor with bread. <sup>16</sup>I will also clothe her priests with salvation, and her saints shall shout aloud for joy. <sup>17</sup>There I will make the horn of David grow; I will prepare a lamp for My Anointed. <sup>18</sup>His enemies I will clothe with shame, but upon Himself His crown shall flourish.” (Ps. 132:13-18)
 
 B. The LORD has chosen Zion: We ask the Spirit to teach us what He sees and feels about Jerusalem. Jesus is zealous for Jerusalem and has great affection for it. Zion usually speaks of Jerusalem.
 
->2“I am zealous for Zion with great zeal...3I will return to Zion, and dwell in the midst...” (Zech. 8:2-3)
+><sup>2</sup>“I am zealous for Zion with great zeal...<sup>3</sup>I will return to Zion, and dwell in the midst...” (Zech. 8:2-3)
 
 C. This is My resting place forever: Jesus will return to Jerusalem to live forever. Moses prophesied that God had chosen the place where He would be worshiped in His temple/sanctuary (Ex. 15:17).
 
->17You will bring them in and plant them in the mountain of Your inheritance [Jerusalem], in the place, O LORD, which You have made for Your own dwelling, the sanctuary... (Ex. 15:17)
+><sup>17</sup>You will bring them in and plant them in the mountain of Your inheritance [Jerusalem], in the place, O LORD, which You have made for Your own dwelling, the sanctuary... (Ex. 15:17)
 
 D. I will clothe her priests with salvation: The prayer of 132:9 is prophetically answered in 132:16.
 
 E. I will make the horn of David grow: This is a metaphor taken from the horns of a ram that display its beauty and strength. Jesus’ government will progressively increase forever (Isa. 9:7).
 
->7Of the increase of His government and peace there will be no end...forever. (Isa. 9:6-7)
+><sup>7</sup>Of the increase of His government and peace there will be no end...forever. (Isa. 9:6-7)
 
 F. I will prepare a lamp for My Anointed: The lamp is a figure for a leader (2 Sam. 21:17)—Jesus.
 
